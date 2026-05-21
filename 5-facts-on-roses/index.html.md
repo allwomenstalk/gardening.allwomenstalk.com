@@ -3,7 +3,7 @@ title: "5 Facts on Roses ..."
 description: "60 Percent of the Roses Grown in the US Come from California; The Oldest Rose Exists in Germany; Roses Are Mentioned in Mythological Texts; There is a Lot of Vitamin C in Rose Hips; Past Presidents Liked Roses; More ..."
 url: "https://gardening.allwomenstalk.com/5-facts-on-roses/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Facts on Roses ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Haz Da Nikonian](https://www.flickr.com/photos/hazsco/2824550
 
 ## Related Posts
 
-- [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
-- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
+- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
+- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 - [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
-- [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
+- [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
+- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
 - [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
+- [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
+- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
 - [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
 - [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
-- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
-- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
-- [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
 - [5 Facts on DNA ...](https://twilight.allwomenstalk.com/5-facts-on-dna/)
 - [5 Facts on Chi ...](https://twilight.allwomenstalk.com/5-facts-on-chi/)
 

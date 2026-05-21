@@ -3,7 +3,7 @@ title: "5 Cool Season Vegetables ..."
 description: "Beets; Rutabagas; Cabbages; Leeks; Swiss Chard; More ..."
 url: "https://gardening.allwomenstalk.com/5-cool-season-vegetables/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Cool Season Vegetables ...
@@ -36,16 +36,16 @@ Top Photo Credit: [musicpb](https://www.flickr.com/photos/32356625@N00/876759098
 
 ## Related Posts
 
-- [5 Tricks to Keeping Your Garden Healthy ...](https://gardening.allwomenstalk.com/5-tricks-to-keeping-your-garden-healthy/)
 - [7 Easy Steps to Growing Tomatoes ...](https://gardening.allwomenstalk.com/7-easy-steps-to-growing-tomatoes/)
-- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
-- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
-- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 - [vegetable gardening magazine](https://gardening.allwomenstalk.com/5-cool-gardening-magazines/)
+- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
 - [5 Tools I Could Not do without in the Garden ...](https://gardening.allwomenstalk.com/5-tools-i-could-not-do-without-in-the-garden/)
+- [5 Tricks to Keeping Your Garden Healthy ...](https://gardening.allwomenstalk.com/5-tricks-to-keeping-your-garden-healthy/)
 - [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
-- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
+- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
+- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
+- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

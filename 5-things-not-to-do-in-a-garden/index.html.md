@@ -3,7 +3,7 @@ title: "5 Things NOT to do in a Garden ..."
 description: "Don’t Water Plants during the Afternoon on Sunny Days. when I First Started Gardening, I Thought I Would Cool My Plants off by Watering Them during the Hottest Part of the Day. Little Did I Know That This Would Cause My Plants to Burn to a Crisp; Don’t Plant Your Vegetables Too Close Together; Don’t Put Fresh Cow Manure Straight onto Your Plants; Don’t Leave Gardening Tools on the Ground; Don’t Run from Bees; More ..."
 url: "https://gardening.allwomenstalk.com/5-things-not-to-do-in-a-garden/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Things NOT to do in a Garden ...
@@ -34,16 +34,16 @@ Top Photo Credit: [ahp_ibanez](https://goo.gl/akCS5l)
 
 ## Related Posts
 
-- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
-- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
-- [nice dinner](https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/)
-- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
 - [5 Things Not to do in the Garden ...](https://gardening.allwomenstalk.com/5-things-not-to-do-in-the-garden/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
-- [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
+- [nice dinner](https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/)
 - [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
+- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
+- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
+- [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
+- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

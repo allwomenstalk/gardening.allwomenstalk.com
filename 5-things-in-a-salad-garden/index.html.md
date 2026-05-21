@@ -3,7 +3,7 @@ title: "5 Things in a Salad Garden ..."
 description: "Radishes; Scallions; Miniature Bell Peppers; Butter Lettuce; Cherry Tomatoes; More ..."
 url: "https://gardening.allwomenstalk.com/5-things-in-a-salad-garden/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Things in a Salad Garden ...
@@ -37,15 +37,15 @@ Top Photo Credit: _W10_
 ## Related Posts
 
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)
-- [5 Tips on Growing Any Vine ...](https://gardening.allwomenstalk.com/5-tips-on-growing-any-vine/)
-- [5 Tips on Growing Wild Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-wild-flowers/)
-- [7 Ways to Make Cute Flowers Last Longer ...](https://gardening.allwomenstalk.com/7-ways-to-make-cute-flowers-last-longer/)
 - [5 Garden Tips for Summer ...](https://gardening.allwomenstalk.com/5-garden-tips-for-summer/)
-- [5 Cool Plants You Have to Have ...](https://gardening.allwomenstalk.com/5-cool-plants-you-have-to-have/)
 - [5 ways to prepare your garden for winter](https://gardening.allwomenstalk.com/5-tips-on-how-to-prepare-your-garden-for-winter/)
-- [8 Early Spring Plants to Love ...](https://gardening.allwomenstalk.com/8-early-spring-plants-to-love/)
-- [5 Garden Tips on Squash ...](https://gardening.allwomenstalk.com/5-garden-tips-on-squash/)
+- [5 Tips on Growing Any Vine ...](https://gardening.allwomenstalk.com/5-tips-on-growing-any-vine/)
+- [7 Ways to Make Cute Flowers Last Longer ...](https://gardening.allwomenstalk.com/7-ways-to-make-cute-flowers-last-longer/)
 - [name 5 things in the garden](https://gardening.allwomenstalk.com/5-dangerous-things-to-avoid-in-a-garden/)
+- [5 Cool Plants You Have to Have ...](https://gardening.allwomenstalk.com/5-cool-plants-you-have-to-have/)
+- [8 Early Spring Plants to Love ...](https://gardening.allwomenstalk.com/8-early-spring-plants-to-love/)
+- [5 Tips on Growing Wild Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-wild-flowers/)
+- [5 Garden Tips on Squash ...](https://gardening.allwomenstalk.com/5-garden-tips-on-squash/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 - [5 Reasons to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-grow-a-vegetable-garden/)
 

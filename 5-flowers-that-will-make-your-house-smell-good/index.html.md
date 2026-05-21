@@ -3,7 +3,7 @@ title: "5 Flowers That Will Make Your House Smell Good ..."
 description: "Jasmine; Lily of the Valley; Hyacinth; Daffodil; Peony; More ..."
 url: "https://gardening.allwomenstalk.com/5-flowers-that-will-make-your-house-smell-good/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Flowers That Will Make Your House Smell Good ...
@@ -37,15 +37,15 @@ Top Photo Credit: [`maridesign`](https://www.flickr.com/photos/mari_paintbox/231
 ## Related Posts
 
 - [Smells Good Enough to Eat...](https://allwomenstalk.com/smells-good-enough-to-eat/)
-- [TOM FORD BLACK ORCHID ...](https://allwomenstalk.com/tom-ford-black-orchid/)
-- [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
-- [When the Perfume Gods Close a Door They Open...an....](https://allwomenstalk.com/when-the-perfume-gods-close-a-door-they-openan-2/)
-- [7 Ways to Scent Your Home ...](https://lifestyle.allwomenstalk.com/ways-to-scent-your-home/)
-- [laundry by design petal crush](https://allwomenstalk.com/pure-petal-hair-fragrances-lipstick-powder-n-paint/)
-- [8 Amazing Holiday Candle Scents ...](https://lifestyle.allwomenstalk.com/amazing-holiday-candle-scents/)
-- [botanicus candles](https://allwomenstalk.com/best-darn-candles/)
 - [red door velvet perfume](https://allwomenstalk.com/when-the-perfume-gods-close-a-door-they-openanother-door/)
+- [botanicus candles](https://allwomenstalk.com/best-darn-candles/)
+- [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
+- [7 Ways to Scent Your Home ...](https://lifestyle.allwomenstalk.com/ways-to-scent-your-home/)
+- [8 Amazing Holiday Candle Scents ...](https://lifestyle.allwomenstalk.com/amazing-holiday-candle-scents/)
+- [When the Perfume Gods Close a Door They Open...an....](https://allwomenstalk.com/when-the-perfume-gods-close-a-door-they-openan-2/)
+- [laundry by design petal crush](https://allwomenstalk.com/pure-petal-hair-fragrances-lipstick-powder-n-paint/)
 - [What Perfumes Would Be Really Good to Give It to a...](https://allwomenstalk.com/what-perfumes-would-be-really-good-to-give-it-to-a-hot-girl/)
+- [TOM FORD BLACK ORCHID ...](https://allwomenstalk.com/tom-ford-black-orchid/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

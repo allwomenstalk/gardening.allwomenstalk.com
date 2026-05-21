@@ -3,7 +3,7 @@ title: "5 Plants to Grow in Pots ..."
 description: "Eggplant; Luffas; Lime Tree; Hot Peppers; Sweet Potatoes; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Plants to Grow in Pots ...
@@ -36,16 +36,16 @@ Top Photo Credit: [cawarfel](https://www.flickr.com/photos/cawarfel/5066522498/)
 
 ## Related Posts
 
-- [5 Tips on Relaxing in the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-relaxing-in-the-garden/)
-- [7 Gardening Blogs You Must Read ...](https://gardening.allwomenstalk.com/7-gardening-blogs-you-must-read/)
 - [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
+- [5 Tips on Relaxing in the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-relaxing-in-the-garden/)
 - [creatures in the garden](https://gardening.allwomenstalk.com/5-animals-you-may-find-in-your-garden/)
 - [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
-- [cherry tree care and maintenance](https://gardening.allwomenstalk.com/5-tips-on-caring-for-cherry-trees/)
-- [What about Hydroponics ...](https://gardening.allwomenstalk.com/what-about-hydroponics/)
-- [5 Tips on Growing Corn ...](https://gardening.allwomenstalk.com/5-tips-on-growing-corn/)
-- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 - [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
+- [7 Gardening Blogs You Must Read ...](https://gardening.allwomenstalk.com/7-gardening-blogs-you-must-read/)
+- [cherry tree care and maintenance](https://gardening.allwomenstalk.com/5-tips-on-caring-for-cherry-trees/)
+- [5 Tips on Growing Corn ...](https://gardening.allwomenstalk.com/5-tips-on-growing-corn/)
+- [What about Hydroponics ...](https://gardening.allwomenstalk.com/what-about-hydroponics/)
+- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 - [5 Fantastic Potted Plant Wedding Ideas ...](https://wedding.allwomenstalk.com/5-fantastic-potted-plant-wedding-ideas/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

@@ -3,7 +3,7 @@ title: "21 Herbs You Should Start Growing on Your Windowsill ..."
 description: "Basil; Chives; Thyme; Sage; Dill; More ..."
 url: "https://gardening.allwomenstalk.com/herbs-you-should-start-growing-on-your-windowsill/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 21 Herbs You Should Start Growing on Your Windowsill ...
@@ -140,16 +140,16 @@ Which of these herbs do you like to cook with? Are you planning to start an herb
 
 ## Related Posts
 
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
 - [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
-- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
-- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
 - [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
 - [Dont Wait until Next Season to Plant These Garden ...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
-- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
 - [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
+- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
 - [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 

@@ -3,7 +3,7 @@ title: "5 Great Uses for Basil ..."
 description: "As a Pain Killer; Get Rid of Gas; To Add Flavor to Meals; As the Basic Ingredient for Pesto; An Energizing Tea; More ..."
 url: "https://gardening.allwomenstalk.com/great-uses-for-basil/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Great Uses for Basil ...
@@ -38,13 +38,13 @@ Top Photo Credit: _cathdrwg_
 
 - [recipes for an upset stomach](https://health.allwomenstalk.com/7-recipes-to-soothe-a-stomach-upset/)
 - [7 Healthy Side Dishes to Try Today ...](https://health.allwomenstalk.com/7-healthy-side-dishes-to-try-today/)
-- [7 World Exotic Foods Every Gourmand Must Try ...](https://lifestyle.allwomenstalk.com/world-exotic-foods-every-gourmand-must-try/)
-- [garde manger recipes](https://allwomenstalk.com/small-steps-to-the-garde-manger-breakfast-sausage-with-sage-and-ginger/)
 - [7 Recipes Kids Can Help Make ...](https://lifestyle.allwomenstalk.com/recipes-kids-can-help-make/)
-- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
+- [garde manger recipes](https://allwomenstalk.com/small-steps-to-the-garde-manger-breakfast-sausage-with-sage-and-ginger/)
 - [Book Update Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing-2/)
-- [Shrimp and Corn Chowder - a Soup Your Entire Famil...](https://allwomenstalk.com/shrimp-and-corn-chowder/)
 - [is canning worth it](https://lifestyle.allwomenstalk.com/dos-and-donts-of-home-canning/)
+- [7 World Exotic Foods Every Gourmand Must Try ...](https://lifestyle.allwomenstalk.com/world-exotic-foods-every-gourmand-must-try/)
+- [Shrimp and Corn Chowder - a Soup Your Entire Famil...](https://allwomenstalk.com/shrimp-and-corn-chowder/)
+- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
 - [6 Finger-Licking Recipes for the Grill ...](https://lifestyle.allwomenstalk.com/finger-licking-recipes-for-the-grill/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Cool Veggies to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)

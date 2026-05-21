@@ -3,7 +3,7 @@ title: "5 Healing Herbs ..."
 description: "Chickweed; Black Cohosh; St. John’s Wort; Feverfew; Echinacea; More ..."
 url: "https://gardening.allwomenstalk.com/5-healing-herbs/"
 category: "gardening"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Healing Herbs ...
@@ -36,16 +36,16 @@ Top Photo Credit: [tina negus](https://www.flickr.com/photos/84265607@N00/386624
 
 ## Related Posts
 
-- [5 Herbs to Help a Sore Throat ...](https://gardening.allwomenstalk.com/5-herbs-to-help-a-sore-throat/)
-- [uses for avocado oil](https://cooking.allwomenstalk.com/ways-to-use-infused-avocado-oils/)
-- [7 Ways to Quickly Treat Diaper Rash ...](https://health.allwomenstalk.com/7-ways-to-quickly-treat-diaper-rash/)
+- [8 Ways to Prevent Strokes ...](https://health.allwomenstalk.com/8-ways-to-prevent-strokes/)
 - [8 Ways to Tackle That Monster Migraine ...](https://health.allwomenstalk.com/8-ways-to-tackle-that-monster-migraine/)
 - [5 Ways to Get Rid of Ants ...](https://gardening.allwomenstalk.com/5-ways-to-get-rid-of-ants/)
-- [foods that help with pain](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [5 Tips on Getting Rid of Mosquitoes ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-mosquitoes/)
-- [8 Ways to Prevent Strokes ...](https://health.allwomenstalk.com/8-ways-to-prevent-strokes/)
+- [5 Herbs to Help a Sore Throat ...](https://gardening.allwomenstalk.com/5-herbs-to-help-a-sore-throat/)
+- [foods that help with pain](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [7 Impressively Potent Remedies for Those Painfully...](https://health.allwomenstalk.com/impressively-potent-remedies-for-those-painfully-pesky-migraines/)
+- [7 Ways to Quickly Treat Diaper Rash ...](https://health.allwomenstalk.com/7-ways-to-quickly-treat-diaper-rash/)
 - [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
+- [uses for avocado oil](https://cooking.allwomenstalk.com/ways-to-use-infused-avocado-oils/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
 
