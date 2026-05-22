@@ -3,7 +3,7 @@ title: "7 Oh-so-Pretty Perennials to Plant Right Now ..."
 description: "The Prettiest Peonies; Brilliant Blanket Flowers; Sweet Hollyhocks; Irrepressible Irises; Higher Maintenance Hydrangeas; More ..."
 url: "https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Oh\-so\-Pretty Perennials to Plant Right Now ...
@@ -59,16 +59,16 @@ sunset.com_
 
 ## Related Posts
 
-- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
-- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
-- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
 - [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
-- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
+- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
 - [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
-- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
 - [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
+- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
+- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
+- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
+- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)
 

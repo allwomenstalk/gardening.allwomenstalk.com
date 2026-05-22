@@ -3,7 +3,7 @@ title: "5 Bad Smelling Plants to Not Grow ..."
 description: "Rafflesia; Ginkgo Trees; Voodoo Lily; Skunk Cabbage; Corpse Plant; More ..."
 url: "https://gardening.allwomenstalk.com/5-bad-smelling-plants-to-not-grow/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Bad Smelling Plants to Not Grow ...
@@ -36,15 +36,15 @@ Top Photo Credit: [Araleya](https://www.flickr.com/photos/araleya/265624334/)
 
 ## Related Posts
 
-- [5 Tips on Making a Patio ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-patio/)
-- [5 Tips on Caring for Your Lawn ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-lawn/)
 - [tips for planting apple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-apple-trees/)
-- [gardening](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
-- [how to grow daylilies](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilies/)
-- [5 Tips on Growing Daffodils ...](https://gardening.allwomenstalk.com/5-tips-on-growing-daffodils/)
 - [5 Tips on Caring for Poinsettias ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-poinsettias/)
-- [gardening pick up lines](https://gardening.allwomenstalk.com/5-tips-to-follow-for-the-perfect-garden/)
+- [5 Tips on Caring for Your Lawn ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-lawn/)
 - [prettiest plants in the world](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
+- [5 Tips on Making a Patio ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-patio/)
+- [gardening pick up lines](https://gardening.allwomenstalk.com/5-tips-to-follow-for-the-perfect-garden/)
+- [gardening](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
+- [5 Tips on Growing Daffodils ...](https://gardening.allwomenstalk.com/5-tips-on-growing-daffodils/)
+- [how to grow daylilies](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilies/)
 - [5 Tips on Caring for Sunflowers . ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-sunflowers/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)

@@ -3,7 +3,7 @@ title: "5 Techniques for Keeping Your Dog out of the Garden ..."
 description: "Treat Area with Chemicals to Repel Dogs; Hang Aluminum Pie Tins from String on Posts around the Garden; Train Him to Stay out of the Garden Area; Invest in an Invisible Fencing System; Put up a Fence; More ..."
 url: "https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Techniques for Keeping Your Dog out of the Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [partydogdemon](https://www.flickr.com/photos/partydogdemon/56
 
 ## Related Posts
 
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
-- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
-- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
 - [5 Fast Growing Plants](https://gardening.allwomenstalk.com/fast-growing-plants/)
-- [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
-- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [love sarra art couple](https://gardening.allwomenstalk.com/cool-annuals/)
+- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
+- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
+- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
+- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
+- [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 

@@ -3,7 +3,7 @@ title: "5 Fun Things to do in a Garden ..."
 description: "Make a Place for the Cats to Hang out with You; Add Some Lights; Create Gnome Homes or Toad Houses; Spell Words with Plants; Get Creative with the Landscape; More ..."
 url: "https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Fun Things to do in a Garden ...
@@ -37,15 +37,15 @@ Top Photo Credit: [Dominique Loves Light ( off to San Francisco )](https://www.f
 ## Related Posts
 
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
-- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
-- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
-- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
-- [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
-- [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
+- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
+- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [interesting facts about hydroponics](https://gardening.allwomenstalk.com/top-5-reasons-i-like-hydroponics/)
+- [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
+- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
 - [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
+- [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Fun Garden Activities for Kids ...](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
 

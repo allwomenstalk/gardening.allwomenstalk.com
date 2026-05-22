@@ -3,7 +3,7 @@ title: "10 Must Have Herbs in the House ..."
 description: "Rosemary; Mint; Thyme; Basil; Chamomile; More ..."
 url: "https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Must Have Herbs in the House ...
@@ -56,16 +56,16 @@ Top image source: [myrentalpad.com](https://goo.gl/Q0eROU)
 
 ## Related Posts
 
-- [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
 - [5 Tips on Growing Beautiful Daffodils](https://gardening.allwomenstalk.com/tips-on-growing-beautiful-daffodils/)
-- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
-- [5 Plants with Unique Flowers](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
-- [5 Tips on Planting Bulbs](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
-- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
-- [plants for foundation of house](https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/)
 - [5 Great Plants for Creating Borders with](https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/)
+- [5 Tips on Planting Bulbs](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
+- [5 Plants with Unique Flowers](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
+- [plants for foundation of house](https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/)
+- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
 - [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
+- [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
 - [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
+- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
 

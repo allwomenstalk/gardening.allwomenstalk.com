@@ -3,7 +3,7 @@ title: "28 of Todays Extraordinary Flowers Inspo to Brighten Every Girls Day ...
 description: "@bowsandarrowsflowers; @coffeeandseasons; @the_blue_carrot; @alajamie; @swallowsanddamsons; More ..."
 url: "https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-to-follow/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 28 of Todays Extraordinary Flowers Inspo to Brighten Every Girls Day ...

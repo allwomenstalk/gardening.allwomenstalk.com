@@ -3,7 +3,7 @@ title: "5 Plants with Purple Flowers ..."
 description: "Lupine; Passion Flower; Lavender; Lilac; Wisteria; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-with-purple-flowers/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Plants with Purple Flowers ...
@@ -36,16 +36,16 @@ Top Photo Credit: [DM Weber](https://www.flickr.com/photos/weberd/4600535556/)
 
 ## Related Posts
 
-- [tips for growing rosemary](https://gardening.allwomenstalk.com/5-tips-on-growing-rosemary/)
-- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
-- [5 Tips on Trimming Trees ...](https://gardening.allwomenstalk.com/5-tips-on-trimming-trees/)
-- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
-- [5 gallon bucket tomato cage](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)
 - [5 Tips on Preventing Rose Problems ...](https://gardening.allwomenstalk.com/5-tips-on-preventing-rose-problems/)
-- [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
 - [loreal paris le stylo garde](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
-- [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
+- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
 - [5 Tips on Growing a Christmas Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-a-christmas-cactus/)
+- [5 gallon bucket tomato cage](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)
+- [5 Tips on Trimming Trees ...](https://gardening.allwomenstalk.com/5-tips-on-trimming-trees/)
+- [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
+- [tips for growing rosemary](https://gardening.allwomenstalk.com/5-tips-on-growing-rosemary/)
+- [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
+- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 

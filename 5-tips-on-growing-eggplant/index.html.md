@@ -3,7 +3,7 @@ title: "5 Tips on Growing Eggplant ..."
 description: "Sow Seeds Indoors; Plant in a Very Sunny Location; Place Cages around Individual Plants; Add a Layer of Black Plastic on the Ground around Each Plant; Check Plants at Least Every Other Day; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Tips on Growing Eggplant ...
@@ -38,14 +38,14 @@ Top Photo Credit: [MorganStreet](https://www.flickr.com/photos/morganstreet/2636
 
 - [planting weeping willow cuttings](https://gardening.allwomenstalk.com/5-tips-on-growing-a-healthy-weeping-willow/)
 - [5 Rules to Planting Spring Plants ...](https://gardening.allwomenstalk.com/5-rules-to-planting-spring-plants/)
-- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
-- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
-- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
-- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
-- [growing cabbage tips](https://gardening.allwomenstalk.com/5-tips-on-planting-cabbage/)
+- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
+- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
+- [growing cabbage tips](https://gardening.allwomenstalk.com/5-tips-on-planting-cabbage/)
+- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 - [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

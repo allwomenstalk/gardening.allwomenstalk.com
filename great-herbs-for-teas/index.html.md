@@ -3,7 +3,7 @@ title: "5 Great Herbs for Teas ..."
 description: "Florence Fennel Zefa Fino; Borage; Lemon Balm; English Lavender; Catnip; More ..."
 url: "https://gardening.allwomenstalk.com/great-herbs-for-teas/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Great Herbs for Teas ...
@@ -36,16 +36,16 @@ Top Photo Credit: [pgh_shutter](https://www.flickr.com/photos/streiff18/46312139
 
 ## Related Posts
 
-- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
-- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
-- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
-- [5 Plants You Should Plant ...](https://gardening.allwomenstalk.com/5-plants-you-should-plant/)
 - [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
+- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
 - [5 Tips on Making a Shade Garden](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
 - [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
-- [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
-- [5 Vegetables Kids Can Grow Indoors](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
+- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
 - [5 Great Vegetables for a Small Garden ...](https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/)
+- [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
+- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
+- [5 Vegetables Kids Can Grow Indoors](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
+- [5 Plants You Should Plant ...](https://gardening.allwomenstalk.com/5-plants-you-should-plant/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 

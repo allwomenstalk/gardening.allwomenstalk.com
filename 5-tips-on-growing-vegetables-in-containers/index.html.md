@@ -3,7 +3,7 @@ title: "5 Tips on Growing Vegetables in Containers ..."
 description: "Use What You Have; Read the Planting Instructions before Placing Seeds in Containers; Have a Drainage System in Place before Placing Plants; Give Veggie Plants the Right Amount of Light; Supply Your Veggies with Extra Nutrients; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Tips on Growing Vegetables in Containers ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Normann](https://www.flickr.com/photos/vikingman/2428975100/)
 
 ## Related Posts
 
-- [5 Reasons to do Fall Gardening ...](https://gardening.allwomenstalk.com/5-reasons-to-do-fall-gardening/)
-- [tips for growing cabbage](https://gardening.allwomenstalk.com/5-tips-on-growing-cabbage/)
-- [growing cherry trees](https://gardening.allwomenstalk.com/5-tips-on-growing-cherry-trees/)
-- [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
-- [i like gardening because](https://gardening.allwomenstalk.com/5-reasons-to-like-having-a-flower-garden/)
 - [5 Cool Garden Plants ...](https://gardening.allwomenstalk.com/5-cool-garden-plants/)
+- [i like gardening because](https://gardening.allwomenstalk.com/5-reasons-to-like-having-a-flower-garden/)
 - [5 Ways to Get Your Husband to Work in the Garden w...](https://gardening.allwomenstalk.com/5-ways-to-get-your-husband-to-work-in-the-garden-with-you/)
 - [fun facts about gardening](https://gardening.allwomenstalk.com/5-facts-on-the-backyard-garden/)
+- [tips for growing cabbage](https://gardening.allwomenstalk.com/5-tips-on-growing-cabbage/)
+- [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
+- [growing cherry trees](https://gardening.allwomenstalk.com/5-tips-on-growing-cherry-trees/)
 - [how to germinate luffa seeds indoors](https://gardening.allwomenstalk.com/5-tips-on-growing-luffa-seeds/)
 - [5 Tips on Caring for Hibiscus Plants ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-hibiscus-plants/)
+- [5 Reasons to do Fall Gardening ...](https://gardening.allwomenstalk.com/5-reasons-to-do-fall-gardening/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

@@ -3,7 +3,7 @@ title: "7 Ways to Kill Weeds without Using Chemicals ..."
 description: "Boiling Water; Borax; Cornmeal; Baking Soda; Salt; More ..."
 url: "https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/"
 category: "gardening"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Kill Weeds without Using Chemicals ...
@@ -42,16 +42,16 @@ Weeds can be persistent little blighters, so I won’t tell you these chemical-f
 
 ## Related Posts
 
-- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
 - [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
-- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
-- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
-- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
 - [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
+- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
+- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
+- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
+- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
+- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 
