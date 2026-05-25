@@ -3,7 +3,7 @@ title: "7 Ways Gardening Helps with Depression ..."
 description: "Movement; Nature; Vitamin D; Accomplishment; Beauty; More ..."
 url: "https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Ways Gardening Helps with Depression ...
@@ -42,16 +42,16 @@ Gardening can come with so many benefits. Sure, you might get dirty or sweaty, b
 
 ## Related Posts
 
-- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
 - [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
-- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
-- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
+- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
 - [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
 - [easy to maintain](https://gardening.allwomenstalk.com/plants-that-are-easy-to-grow-and-maintain/)
 - [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
-- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
 - [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
+- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
+- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
 - [5 Reasons to Relax in Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-relax-in-your-garden/)
 - [8 Reasons I Love Gardening ...](https://gardening.allwomenstalk.com/8-reasons-i-love-gardening/)
 

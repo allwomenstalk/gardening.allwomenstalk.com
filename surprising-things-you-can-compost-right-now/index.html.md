@@ -3,7 +3,7 @@ title: "7 Surprising Things You Can Compost Right Now ..."
 description: "Coffee Grounds; Pet Hair; Cardboard; Eggshells; Shredded Paper; More ..."
 url: "https://gardening.allwomenstalk.com/surprising-things-you-can-compost-right-now/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Surprising Things You Can Compost Right Now ...
@@ -56,16 +56,16 @@ Do you compost? It makes me feel virtuous and the benefits to my garden are grea
 
 ## Related Posts
 
+- [funny quotes about spring cleaning](https://diy.allwomenstalk.com/tips-for-spring-cleaning-your-bedroom/)
 - [draino shower drain](https://diy.allwomenstalk.com/alternative-ways-to-clear-a-clogged-drain-when-you-dont-have-draino/)
-- [homemade dental floss](https://diy.allwomenstalk.com/uses-for-dental-floss-you-probably-never-thought-of/)
 - [oven clean with baking soda and vinegar](https://diy.allwomenstalk.com/steps-in-cleaning-your-oven-with-baking-soda-and-vinegar/)
 - [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
-- [what can you make with cornstarch](https://diy.allwomenstalk.com/ways-to-use-cornstarch-outside-the-kitchen/)
 - [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
 - [amazing gadgets](https://lifestyle.allwomenstalk.com/amazing-gadgets-for-quick-cleaning/)
-- [funny quotes about spring cleaning](https://diy.allwomenstalk.com/tips-for-spring-cleaning-your-bedroom/)
-- [losing important things](https://lifestyle.allwomenstalk.com/super-simple-ways-to-stop-losing-things/)
 - [jiffy cleaners](https://diy.allwomenstalk.com/tips-for-cleaning-your-kitchen-sink-in-a-jiffy/)
+- [homemade dental floss](https://diy.allwomenstalk.com/uses-for-dental-floss-you-probably-never-thought-of/)
+- [what can you make with cornstarch](https://diy.allwomenstalk.com/ways-to-use-cornstarch-outside-the-kitchen/)
+- [losing important things](https://lifestyle.allwomenstalk.com/super-simple-ways-to-stop-losing-things/)
 - [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 - [7 Great Things You Can Make with Chicken ...](https://food.allwomenstalk.com/great-things-you-can-make-with-chicken/)
 

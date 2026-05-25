@@ -3,7 +3,7 @@ title: "5 Plants That Repel Fleas ..."
 description: "Mints of All Sorts; Pennyroyal; Eucalyptus; Rosemary; Lavender; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 5 Plants That Repel Fleas ...
@@ -36,15 +36,15 @@ Top Photo Credit: [S@ilor](https://www.flickr.com/photos/-skipper-/5331045387/)
 
 ## Related Posts
 
-- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
 - [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
-- [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
+- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
 - [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
 - [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
-- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
-- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
+- [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
+- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
 - [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)

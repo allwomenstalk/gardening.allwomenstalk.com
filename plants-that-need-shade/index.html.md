@@ -3,7 +3,7 @@ title: "5 Plants That Need Shade"
 description: "Coleus; Delphinium Magic Fountains; Impatiens; Brazilian Fireworks Maracas; Toad Lily; More ..."
 url: "https://gardening.allwomenstalk.com/plants-that-need-shade/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 5 Plants That Need Shade
@@ -36,16 +36,16 @@ Top Photo Credit: [Foto Martien](https://www.flickr.com/photos/35110249@N05/5041
 
 ## Related Posts
 
-- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
 - [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
-- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
 - [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
-- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
 - [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
-- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
+- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
 - [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
+- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
+- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 

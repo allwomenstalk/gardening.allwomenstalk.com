@@ -3,7 +3,7 @@ title: "8 Extraordinary Gardens of the World ..."
 description: "Lost Gardens of Heligan, UK; Keukenhof, Holland; Giverny, France; Butchart Gardens, Canada; Shalimar Gardens, Pakistan; More ..."
 url: "https://gardening.allwomenstalk.com/extraordinary-gardens-of-the-world/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Extraordinary Gardens of the World ...
@@ -46,16 +46,16 @@ Wherever you travel, there's bound to be one or more beautiful gardens there. It
 
 ## Related Posts
 
-- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
-- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
-- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
-- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
-- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
-- [culture in the middle east](https://travel.allwomenstalk.com/great-ways-to-experience-middle-east-culture/)
-- [reasons to visit russia](https://travel.allwomenstalk.com/things-to-love-about-russia/)
-- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
 - [country speaks spanish](https://travel.allwomenstalk.com/places-outside-of-spain-where-they-speak-spanish/)
+- [culture in the middle east](https://travel.allwomenstalk.com/great-ways-to-experience-middle-east-culture/)
+- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
+- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
+- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
+- [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
+- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
+- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
 - [best places to study abroad in spain](https://travel.allwomenstalk.com/best-places-to-study-abroad/)
+- [reasons to visit russia](https://travel.allwomenstalk.com/things-to-love-about-russia/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 

@@ -3,7 +3,7 @@ title: "5 Flowers for an Edible Garden ..."
 description: "Lavender; Starflower; Chives; Dianthus; Nasturtiums; More ..."
 url: "https://gardening.allwomenstalk.com/flowers-for-an-edible-garden/"
 category: "gardening"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 5 Flowers for an Edible Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [JETS Garden](https://www.flickr.com/photos/jetsgarden/8461693
 
 ## Related Posts
 
-- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
-- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
-- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
-- [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
-- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
-- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
-- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
-- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
 - [5 Basic Herbs to Grow ...](https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/)
+- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
+- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
+- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
+- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
+- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
+- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
 - [daylily rust](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilys/)
+- [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
+- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Beautiful Wedding Bouquets Filled with Berries ....](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
 
