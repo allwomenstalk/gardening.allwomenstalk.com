@@ -56,16 +56,16 @@ Do you compost? It makes me feel virtuous and the benefits to my garden are grea
 
 ## Related Posts
 
-- [funny quotes about spring cleaning](https://diy.allwomenstalk.com/tips-for-spring-cleaning-your-bedroom/)
-- [draino shower drain](https://diy.allwomenstalk.com/alternative-ways-to-clear-a-clogged-drain-when-you-dont-have-draino/)
 - [oven clean with baking soda and vinegar](https://diy.allwomenstalk.com/steps-in-cleaning-your-oven-with-baking-soda-and-vinegar/)
-- [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
-- [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
-- [amazing gadgets](https://lifestyle.allwomenstalk.com/amazing-gadgets-for-quick-cleaning/)
-- [jiffy cleaners](https://diy.allwomenstalk.com/tips-for-cleaning-your-kitchen-sink-in-a-jiffy/)
+- [funny quotes about spring cleaning](https://diy.allwomenstalk.com/tips-for-spring-cleaning-your-bedroom/)
 - [homemade dental floss](https://diy.allwomenstalk.com/uses-for-dental-floss-you-probably-never-thought-of/)
-- [what can you make with cornstarch](https://diy.allwomenstalk.com/ways-to-use-cornstarch-outside-the-kitchen/)
+- [jiffy cleaners](https://diy.allwomenstalk.com/tips-for-cleaning-your-kitchen-sink-in-a-jiffy/)
+- [amazing gadgets](https://lifestyle.allwomenstalk.com/amazing-gadgets-for-quick-cleaning/)
+- [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
 - [losing important things](https://lifestyle.allwomenstalk.com/super-simple-ways-to-stop-losing-things/)
+- [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
+- [draino shower drain](https://diy.allwomenstalk.com/alternative-ways-to-clear-a-clogged-drain-when-you-dont-have-draino/)
+- [what can you make with cornstarch](https://diy.allwomenstalk.com/ways-to-use-cornstarch-outside-the-kitchen/)
 - [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 - [7 Great Things You Can Make with Chicken ...](https://food.allwomenstalk.com/great-things-you-can-make-with-chicken/)
 

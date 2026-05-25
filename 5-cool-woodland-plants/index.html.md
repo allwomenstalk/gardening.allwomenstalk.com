@@ -36,16 +36,16 @@ Top Photo Credit: [PATierney](https://www.flickr.com/photos/pattietierney/363975
 
 ## Related Posts
 
-- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
-- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
-- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
-- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
 - [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
-- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
-- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
-- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
+- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
+- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
+- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
+- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
+- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
+- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 

@@ -37,15 +37,15 @@ Top Photo Credit: [paolo.benetti](https://www.flickr.com/photos/paolobenetti/511
 ## Related Posts
 
 - [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
+- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
 - [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
+- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
 - [5 of My Favorite Plants ...](https://gardening.allwomenstalk.com/5-of-my-favorite-plants/)
 - [best pitch fork for mulch](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-mulch/)
-- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
-- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
 - [5 Gorgeous Annual Plants](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
+- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
 - [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
 - [The 5 Best Plants for Cool Climates](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
-- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 

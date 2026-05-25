@@ -48,16 +48,16 @@ Top Photo Credit: [JannaPham](https://www.flickr.com/photos/jannapham/3463143898
 
 ## Related Posts
 
-- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
-- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
-- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
 - [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
-- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
 - [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
+- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
+- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
 - [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
-- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 - [5 Tips on Backyard Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-backyard-gardening/)
 

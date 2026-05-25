@@ -36,16 +36,16 @@ Top Photo Credit: _Kıvanç Niş_
 
 ## Related Posts
 
-- [nuts trees](https://gardening.allwomenstalk.com/types-of-nut-trees/)
-- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
+- [beginning gardening tips](https://gardening.allwomenstalk.com/tips-for-beginning-gardeners/)
+- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
+- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
 - [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
 - [5 Types of Basil for the Garden ...](https://gardening.allwomenstalk.com/types-of-basil-for-the-garden/)
-- [beginning gardening tips](https://gardening.allwomenstalk.com/tips-for-beginning-gardeners/)
-- [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
-- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
+- [nuts trees](https://gardening.allwomenstalk.com/types-of-nut-trees/)
 - [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
+- [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
 - [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
-- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
+- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Growing Wild Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-wild-flowers/)
 

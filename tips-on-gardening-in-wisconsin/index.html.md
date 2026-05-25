@@ -36,16 +36,16 @@ Top Photo Credit: [andrews.larsen](https://www.flickr.com/photos/42593107@N08/39
 
 ## Related Posts
 
-- [beginning gardening tips](https://gardening.allwomenstalk.com/tips-for-beginning-gardeners/)
 - [5 Types of Basil for the Garden ...](https://gardening.allwomenstalk.com/types-of-basil-for-the-garden/)
 - [willow tree root](https://gardening.allwomenstalk.com/5-tips-on-growing-pussy-willow/)
-- [5 Tips on Growing Petunias ...](https://gardening.allwomenstalk.com/5-tips-on-growing-petunias/)
-- [healthy tulip bulbs](https://gardening.allwomenstalk.com/tips-on-growing-tulips/)
 - [Top 8 Mulching Mistakes to Avoid ...](https://gardening.allwomenstalk.com/top-8-mulching-mistakes-to-avoid/)
-- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
-- [5 Tips on Making Money with Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-money-with-your-garden/)
-- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
 - [nuts trees](https://gardening.allwomenstalk.com/types-of-nut-trees/)
+- [5 Tips on Growing Petunias ...](https://gardening.allwomenstalk.com/5-tips-on-growing-petunias/)
+- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
+- [healthy tulip bulbs](https://gardening.allwomenstalk.com/tips-on-growing-tulips/)
+- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
+- [beginning gardening tips](https://gardening.allwomenstalk.com/tips-for-beginning-gardeners/)
+- [5 Tips on Making Money with Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-money-with-your-garden/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

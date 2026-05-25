@@ -36,16 +36,16 @@ Top Photo Credit: [chippewabear](https://www.flickr.com/photos/chippewabear/3454
 
 ## Related Posts
 
-- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
-- [5 Cool Woodland Plants ...](https://gardening.allwomenstalk.com/5-cool-woodland-plants/)
-- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [gardening weeding](https://gardening.allwomenstalk.com/5-tips-on-weeding-the-spring-garden/)
-- [5 Tips on Growing Ageratum ...](https://gardening.allwomenstalk.com/5-tips-on-growing-ageratum/)
-- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
-- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
 - [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
+- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
+- [gardening weeding](https://gardening.allwomenstalk.com/5-tips-on-weeding-the-spring-garden/)
+- [5 Plants That Need Shade](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [5 Tips on Growing Ageratum ...](https://gardening.allwomenstalk.com/5-tips-on-growing-ageratum/)
+- [5 Cool Woodland Plants ...](https://gardening.allwomenstalk.com/5-cool-woodland-plants/)
 - [5 Tips on Southern Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-southern-gardening/)
 - [5 Water-loving Plants ...](https://gardening.allwomenstalk.com/water-loving-plants/)
+- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
+- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Growing Blueberries Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-blueberries-bushes/)
 

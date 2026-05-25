@@ -42,16 +42,16 @@ I wish I had enough space to grow my own food properly. I do it on a small scale
 
 ## Related Posts
 
-- [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
 - [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
-- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
-- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
-- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
-- [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
-- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
-- [great gardening tips for spring](https://gardening.allwomenstalk.com/great-gardening-tips-for-a-gorgeous-spring-garden/)
 - [plants for a winter garden](https://gardening.allwomenstalk.com/fabulous-plants-for-a-winter-garden/)
+- [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
+- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
+- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
+- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
 - [7 Ways to Maintain Your Garden All Year ...](https://gardening.allwomenstalk.com/ways-to-maintain-your-garden-all-year/)
+- [great gardening tips for spring](https://gardening.allwomenstalk.com/great-gardening-tips-for-a-gorgeous-spring-garden/)
+- [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
+- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
 - [6 Herbs You Can Grow in Your Kitchen Garden ...](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [5 Reasons to Buy Seeds from Heirloom Plants ...](https://gardening.allwomenstalk.com/5-reasons-to-buy-seeds-from-heirloom-plants/)
 

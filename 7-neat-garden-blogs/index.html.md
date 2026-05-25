@@ -58,16 +58,16 @@ Top Photo Credit: [nyc dreamer](https://www.flickr.com/photos/gembone/3575561495
 
 ## Related Posts
 
+- [tumblrs](https://lifestyle.allwomenstalk.com/best-tumblrs-to-check-out/)
 - [Bay Area Blog of the Week  33](https://allwomenstalk.com/bay-area-blog-of-the-week-33/)
+- [5 Reasons I like Blogging about Gardens ...](https://gardening.allwomenstalk.com/5-reasons-i-like-blogging-about-gardens/)
+- [Bay Area Blogger of the Week  35 ...](https://allwomenstalk.com/bay-area-blogger-of-the-week-35/)
 - [blogger relationships](https://lifestyle.allwomenstalk.com/best-relationship-advice-blogs/)
-- [type 2 diabetes blogs](https://health.allwomenstalk.com/incredibly-amazing-diabetes-blogs/)
 - [My Blog My Fri-enemy ...](https://allwomenstalk.com/my-blog-my-fri-enemy/)
 - [Bay Area Blog of the Week  32](https://allwomenstalk.com/bay-area-blog-of-the-week-32/)
-- [7 of My Favorite Gardening Blogs ...](https://gardening.allwomenstalk.com/7-of-my-favorite-gardening-blogs/)
-- [tumblrs](https://lifestyle.allwomenstalk.com/best-tumblrs-to-check-out/)
-- [5 Reasons I like Blogging about Gardens ...](https://gardening.allwomenstalk.com/5-reasons-i-like-blogging-about-gardens/)
+- [type 2 diabetes blogs](https://health.allwomenstalk.com/incredibly-amazing-diabetes-blogs/)
 - [8 Amazingly Charming Craft Blogs to Stalk ...](https://lifestyle.allwomenstalk.com/amazingly-charming-craft-blogs-to-stalk/)
-- [Bay Area Blogger of the Week  35 ...](https://allwomenstalk.com/bay-area-blogger-of-the-week-35/)
+- [7 of My Favorite Gardening Blogs ...](https://gardening.allwomenstalk.com/7-of-my-favorite-gardening-blogs/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Cool Gardening Blogs ...](https://gardening.allwomenstalk.com/5-cool-gardening-blogs/)
 

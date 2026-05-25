@@ -36,16 +36,16 @@ Top Photo Credit: [Sarah's Yard](https://www.flickr.com/photos/sarahsyard/560227
 
 ## Related Posts
 
-- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
-- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
 - [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
-- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
+- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
+- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
+- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
 - [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
 - [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
-- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
+- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
 - [paris le stylo smoky rose nude](https://gardening.allwomenstalk.com/5-plants-that-need-full-sun/)
+- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
 - [bougainvillea cuttings](https://gardening.allwomenstalk.com/5-tips-on-rooting-bougainvillea/)
-- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
 - [Best Plants for Patio Gardening ...](https://gardening.allwomenstalk.com/best-plants-for-patio-gardening/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

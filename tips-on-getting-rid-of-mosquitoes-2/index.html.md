@@ -36,16 +36,16 @@ Top Photo Credit: [dr_relling](https://www.flickr.com/photos/agder/2783124139/)
 
 ## Related Posts
 
-- [Foot Care:  Relieving Tired and Swollen Feet](https://allwomenstalk.com/foot-care-relieving-tired-and-swollen-feet/)
-- [7 Alleged Cures for Hiccups ...](https://health.allwomenstalk.com/alleged-cures-for-hiccups/)
-- [7 Wise Ways to Avoid Back Problems ...](https://health.allwomenstalk.com/wise-ways-to-avoid-back-problems/)
-- [Treats ...](https://allwomenstalk.com/treats/)
-- [protect yourself from radiation](https://lifestyle.allwomenstalk.com/7-ways-to-protect-yourself-from-radiation/)
 - [Home Remedies for Distaste of Food](https://allwomenstalk.com/home-remedies-for-distaste-of-food/)
 - [men when sick](https://love.allwomenstalk.com/surprisingly-effective-ways-to-cope-when-your-man-gets-sick/)
-- [A Quick Hand Treatment ...](https://allwomenstalk.com/a-quick-hand-treatment/)
-- [9 Natural Herbs You Shouldnt Be without ...](https://lifestyle.allwomenstalk.com/natural-herbs-you-shouldnt-be-without/)
+- [7 Wise Ways to Avoid Back Problems ...](https://health.allwomenstalk.com/wise-ways-to-avoid-back-problems/)
 - [8 Ways to Protect against Harmful Chemicals ...](https://lifestyle.allwomenstalk.com/ways-to-protect-against-harmful-chemicals/)
+- [protect yourself from radiation](https://lifestyle.allwomenstalk.com/7-ways-to-protect-yourself-from-radiation/)
+- [9 Natural Herbs You Shouldnt Be without ...](https://lifestyle.allwomenstalk.com/natural-herbs-you-shouldnt-be-without/)
+- [Foot Care:  Relieving Tired and Swollen Feet](https://allwomenstalk.com/foot-care-relieving-tired-and-swollen-feet/)
+- [A Quick Hand Treatment ...](https://allwomenstalk.com/a-quick-hand-treatment/)
+- [Treats ...](https://allwomenstalk.com/treats/)
+- [7 Alleged Cures for Hiccups ...](https://health.allwomenstalk.com/alleged-cures-for-hiccups/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

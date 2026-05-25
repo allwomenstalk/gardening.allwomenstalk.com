@@ -36,16 +36,16 @@ Top Photo Credit: [Scandblue](https://www.flickr.com/photos/mapplegate/400214155
 
 ## Related Posts
 
-- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
-- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
-- [roses like flowers](https://gardening.allwomenstalk.com/rose-look-alikes-for-your-garden/)
-- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
 - [paris le stylo smoky rose nude](https://gardening.allwomenstalk.com/5-plants-that-need-full-sun/)
-- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
+- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
 - [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
-- [5 Flowers for an Edible Garden ...](https://gardening.allwomenstalk.com/flowers-for-an-edible-garden/)
-- [5 Basic Herbs to Grow ...](https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/)
 - [daylily rust](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilys/)
+- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
+- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
+- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
+- [roses like flowers](https://gardening.allwomenstalk.com/rose-look-alikes-for-your-garden/)
+- [5 Basic Herbs to Grow ...](https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/)
+- [5 Flowers for an Edible Garden ...](https://gardening.allwomenstalk.com/flowers-for-an-edible-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Growing Blueberries Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-blueberries-bushes/)
 

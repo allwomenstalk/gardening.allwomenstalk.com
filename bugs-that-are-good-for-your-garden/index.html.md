@@ -36,16 +36,16 @@ Top Photo Credit: [Pankcho](https://www.flickr.com/photos/pankcho/276840868/)
 
 ## Related Posts
 
-- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
-- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
-- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
 - [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
-- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
-- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
 - [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
-- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
+- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
 - [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
+- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
+- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
+- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
+- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

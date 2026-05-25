@@ -56,15 +56,15 @@ When creating your own water garden, do make sure that you check your local quar
 
 ## Related Posts
 
-- [things for compost](https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/)
+- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
+- [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
 - [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
 - [plants at office desk](https://gardening.allwomenstalk.com/indoor-plants-ideal-for-your-desk-or-office/)
 - [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
-- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
-- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
+- [things for compost](https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/)
 - [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
-- [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
+- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
+- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
 - [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
 - [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
 - [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)

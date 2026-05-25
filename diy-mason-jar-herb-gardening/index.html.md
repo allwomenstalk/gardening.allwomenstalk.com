@@ -34,16 +34,16 @@ So, there you have it. DIY mason jar herb gardening 101!
 
 ## Related Posts
 
-- [whats the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
-- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
-- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
-- [Yes You Can Grow Your Own Herbs ...](https://allwomenstalk.com/grow-your-own-herbs/)
-- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
-- [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
 - [10 Flowers to Plant This Spring ...](https://allwomenstalk.com/10-flowers-to-plant-this-spring/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
+- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
+- [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
+- [whats the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
+- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
+- [Yes You Can Grow Your Own Herbs ...](https://allwomenstalk.com/grow-your-own-herbs/)
 - [12 Delightful Mason Jar Lighting Ideas ...](https://lifestyle.allwomenstalk.com/delightful-mason-jar-lighting-ideas/)
 - [12 Terrific DIY Terrarium Ideas ...](https://lifestyle.allwomenstalk.com/terrific-diy-terrarium-ideas/)
 

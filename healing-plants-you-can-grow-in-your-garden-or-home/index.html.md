@@ -69,15 +69,15 @@ These amazing healing plants are some of my favorites, but I’d love to know if
 ## Related Posts
 
 - [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
+- [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
 - [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
 - [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
-- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
 - [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
-- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
 - [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
-- [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
-- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
+- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 

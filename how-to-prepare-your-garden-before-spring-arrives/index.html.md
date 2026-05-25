@@ -42,16 +42,16 @@ Are you excited to start your spring gardening? What are planting this year?
 
 ## Related Posts
 
-- [southern home dcor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
-- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
-- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
-- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
-- [Dont Wait until Next Season to Plant These Garden ...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
-- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
 - [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
-- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [Dont Wait until Next Season to Plant These Garden ...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
+- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [southern home dcor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
 - [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
+- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
+- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 

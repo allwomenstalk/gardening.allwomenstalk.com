@@ -37,15 +37,15 @@ Top Photo Credit: [Purple Giraffe](https://www.flickr.com/photos/thepurplegiraff
 ## Related Posts
 
 - [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
-- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
-- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
-- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
-- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
-- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
-- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
 - [angel trumpet plant care](https://gardening.allwomenstalk.com/5-tips-on-growing-angels-trumpet/)
+- [5 Tips on Growing Bamboo](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
+- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
+- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
 - [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
 - [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
+- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
+- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
 - [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

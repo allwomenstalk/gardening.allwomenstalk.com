@@ -56,16 +56,16 @@ Not only can houseplants clean the air within your living spaces, but they’re 
 
 ## Related Posts
 
+- [christmas lights in room](https://diy.allwomenstalk.com/ways-to-use-christmas-lights-all-year-round/)
 - [serene home](https://diy.allwomenstalk.com/easy-ways-to-create-serenity-in-your-home/)
-- [creative table setting ideas](https://diy.allwomenstalk.com/stunning-tablescapes-you-wont-be-able-to-take-your-eyes-off-of/)
-- [painting technique done on wet plaster on walls](https://diy.allwomenstalk.com/different-painting-techniques-to-use-in-your-home/)
-- [relaxing bathrooms](https://lifestyle.allwomenstalk.com/incredible-bathroom-essentials-for-the-optimal-relaxing-environment/)
 - [nice living room rugs](https://lifestyle.allwomenstalk.com/elegant-living-room-rugs-to-bring-personality-to-your-rooms/)
-- [ideas for displaying books](https://diy.allwomenstalk.com/useful-creative-ways-to-display-books/)
+- [creative table setting ideas](https://diy.allwomenstalk.com/stunning-tablescapes-you-wont-be-able-to-take-your-eyes-off-of/)
+- [awritingroom](https://diy.allwomenstalk.com/inspirational-ideas-for-a-writing-room/)
+- [relaxing bathrooms](https://lifestyle.allwomenstalk.com/incredible-bathroom-essentials-for-the-optimal-relaxing-environment/)
 - [how to personalize your office](https://diy.allwomenstalk.com/cute-ways-to-personalize-your-work-desk/)
 - [babys bedroom ideas](https://parenting.allwomenstalk.com/baby-nursery-ideas-that-youre-going-to-love/)
-- [awritingroom](https://diy.allwomenstalk.com/inspirational-ideas-for-a-writing-room/)
-- [christmas lights in room](https://diy.allwomenstalk.com/ways-to-use-christmas-lights-all-year-round/)
+- [painting technique done on wet plaster on walls](https://diy.allwomenstalk.com/different-painting-techniques-to-use-in-your-home/)
+- [ideas for displaying books](https://diy.allwomenstalk.com/useful-creative-ways-to-display-books/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 

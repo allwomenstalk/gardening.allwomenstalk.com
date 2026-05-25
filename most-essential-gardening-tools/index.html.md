@@ -46,16 +46,16 @@ When you first have a garden, it can be tempting to rush out and buy lots of too
 
 ## Related Posts
 
-- [7 Delicious Fruits That Are Oh-so-Easy to Grow ...](https://gardening.allwomenstalk.com/fruits-that-are-easy-to-grow/)
-- [8 Plants That Love the Shade ...](https://gardening.allwomenstalk.com/plants-that-love-the-shade/)
-- [7 Expert Tips for Fresh Flowers ...](https://gardening.allwomenstalk.com/expert-tips-for-fresh-flowers/)
-- [8 Routes to a Low-Maintenance Garden ...](https://gardening.allwomenstalk.com/routes-to-a-low-maintenance-garden/)
-- [7 Indoor Plants That Are Low Maintenance for the B...](https://gardening.allwomenstalk.com/indoor-plants-that-are-low-maintenance-for-the-beginner-gardener/)
 - [easy fruits to grow in pots](https://gardening.allwomenstalk.com/fruits-to-grow-in-containers/)
-- [loreal la maximalist eyeshadow blinged brilliant](https://gardening.allwomenstalk.com/fab-gardening-tips-everyone-should-know/)
+- [8 Routes to a Low-Maintenance Garden ...](https://gardening.allwomenstalk.com/routes-to-a-low-maintenance-garden/)
+- [7 Expert Tips for Fresh Flowers ...](https://gardening.allwomenstalk.com/expert-tips-for-fresh-flowers/)
+- [7 Delicious Fruits That Are Oh-so-Easy to Grow ...](https://gardening.allwomenstalk.com/fruits-that-are-easy-to-grow/)
 - [7 Ways to Make Sure You Have an Organic Garden Tha...](https://gardening.allwomenstalk.com/ways-to-make-sure-you-have-an-organic-garden-that-you-can-be-proud-of/)
-- [8 Veggies That Are Easy to Grow ...](https://gardening.allwomenstalk.com/veggies-that-are-easy-to-grow/)
+- [7 Indoor Plants That Are Low Maintenance for the B...](https://gardening.allwomenstalk.com/indoor-plants-that-are-low-maintenance-for-the-beginner-gardener/)
+- [8 Plants That Love the Shade ...](https://gardening.allwomenstalk.com/plants-that-love-the-shade/)
 - [7 Ways to Keep Your House Plants Healthy and Happy...](https://gardening.allwomenstalk.com/ways-to-keep-your-house-plants-healthy-and-happy/)
+- [loreal la maximalist eyeshadow blinged brilliant](https://gardening.allwomenstalk.com/fab-gardening-tips-everyone-should-know/)
+- [8 Veggies That Are Easy to Grow ...](https://gardening.allwomenstalk.com/veggies-that-are-easy-to-grow/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [5 Ways to Keep Pests out of Your Garden ...](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
 

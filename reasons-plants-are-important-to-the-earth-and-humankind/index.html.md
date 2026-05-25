@@ -42,16 +42,16 @@ Interesting stuff hey? Who knew the human race had so much reliance on plants? I
 
 ## Related Posts
 
-- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
-- [7 Brilliant Reasons to Grow Your Own Food ...](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-food/)
+- [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
+- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
+- [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
 - [7 Ways to Maintain Your Garden All Year ...](https://gardening.allwomenstalk.com/ways-to-maintain-your-garden-all-year/)
+- [7 Brilliant Reasons to Grow Your Own Food ...](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-food/)
+- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
 - [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
 - [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
 - [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
-- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
-- [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
 - [plants for a winter garden](https://gardening.allwomenstalk.com/fabulous-plants-for-a-winter-garden/)
-- [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 

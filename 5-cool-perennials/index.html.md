@@ -37,15 +37,15 @@ Top Photo Credit: [Wez Smith](https://www.flickr.com/photos/wezsmith/2516664901/
 ## Related Posts
 
 - [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
-- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
-- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 - [5 Rules to Planting Spring Plants ...](https://gardening.allwomenstalk.com/5-rules-to-planting-spring-plants/)
-- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
-- [planting weeping willow cuttings](https://gardening.allwomenstalk.com/5-tips-on-growing-a-healthy-weeping-willow/)
-- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
-- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
 - [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
+- [planting weeping willow cuttings](https://gardening.allwomenstalk.com/5-tips-on-growing-a-healthy-weeping-willow/)
+- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
+- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
+- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
+- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
+- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: _Niveditha Prakash_
 
 ## Related Posts
 
-- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
-- [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
-- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
-- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
-- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
-- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
-- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
 - [how to grow maple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-maple-trees/)
-- [5 FAQs on Gardening ...](https://gardening.allwomenstalk.com/5-faqs-on-gardening/)
 - [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
+- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
+- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
+- [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
+- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
+- [5 FAQs on Gardening ...](https://gardening.allwomenstalk.com/5-faqs-on-gardening/)
+- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
+- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
+- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 

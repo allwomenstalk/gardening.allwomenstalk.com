@@ -36,15 +36,15 @@ Top Photo Credit: [SteveSJ76](https://www.flickr.com/photos/55953007@N00/4348816
 
 ## Related Posts
 
-- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
-- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
-- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
-- [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
 - [5 Cool Veggies to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
-- [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
 - [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
-- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
+- [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
 - [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
+- [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
+- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
+- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
+- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
 - [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)

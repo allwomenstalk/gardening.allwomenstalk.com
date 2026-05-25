@@ -36,16 +36,16 @@ Top Photo Credit: [glossaria](https://www.flickr.com/photos/glossaria/5499952293
 
 ## Related Posts
 
-- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
-- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
-- [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
-- [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
 - [5 Reasons to Buy Seeds from Heirloom Plants ...](https://gardening.allwomenstalk.com/5-reasons-to-buy-seeds-from-heirloom-plants/)
+- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
+- [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
+- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
+- [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
+- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
 - [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
 - [5 Tips on Starting Seeds inside ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-inside/)
 - [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
-- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
-- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
+- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

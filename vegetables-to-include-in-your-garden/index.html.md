@@ -58,15 +58,15 @@ Planting a summer garden is a great activity for families to do together. It is 
 
 ## Related Posts
 
-- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
-- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
-- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
-- [easy to maintain](https://gardening.allwomenstalk.com/plants-that-are-easy-to-grow-and-maintain/)
 - [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
 - [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
-- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
-- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
+- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
 - [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
+- [easy to maintain](https://gardening.allwomenstalk.com/plants-that-are-easy-to-grow-and-maintain/)
+- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
+- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
 - [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 - [5 Reasons to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-grow-a-vegetable-garden/)

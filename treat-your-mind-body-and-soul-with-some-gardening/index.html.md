@@ -50,16 +50,16 @@ I love to spend time in my little garden. Do you?
 
 ## Related Posts
 
-- [21 Herbs You Should Start Growing on Your Windowsi...](https://gardening.allwomenstalk.com/herbs-you-should-start-growing-on-your-windowsill/)
 - [guardiola flower](https://gardening.allwomenstalk.com/bulbs-you-can-plant-now-for-blooms-next-spring/)
-- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
-- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
-- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
-- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
-- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
+- [21 Herbs You Should Start Growing on Your Windowsi...](https://gardening.allwomenstalk.com/herbs-you-should-start-growing-on-your-windowsill/)
 - [Dont Wait until Next Season to Plant These Garden ...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
+- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
+- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
+- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
+- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
 - [7 Reasons to Say Yes to Yoga ...](https://allwomenstalk.com/7-reasons-to-say-yes-to-yoga/)
 - [7 Reasons to Go for a Run ...](https://allwomenstalk.com/7-reasons-to-go-for-a-run/)
 

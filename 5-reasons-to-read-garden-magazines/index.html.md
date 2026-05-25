@@ -36,16 +36,16 @@ Top Photo Credit: [mytinystar](https://www.flickr.com/photos/mytinystar/45988583
 
 ## Related Posts
 
-- [10 Gorgeous Flowers You Can Send ...](https://love.allwomenstalk.com/10-gorgeous-flowers-you-can-send/)
-- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
 - [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
+- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [10 Gorgeous Flowers You Can Send ...](https://love.allwomenstalk.com/10-gorgeous-flowers-you-can-send/)
+- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
+- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
 - [greatgardendesign](https://lifestyle.allwomenstalk.com/great-garden-design-books/)
 - [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
-- [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
-- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
-- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
 - [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
-- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
+- [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
+- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 

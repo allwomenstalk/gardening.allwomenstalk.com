@@ -34,16 +34,16 @@ I thought these facts were rather interesting. Most people talk about the effect
 
 ## Related Posts
 
-- [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
 - [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
-- [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
-- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
-- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
-- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
-- [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
+- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
+- [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
+- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
+- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
+- [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
 - [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
+- [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
 - [5 Amazing Gardening Facts ...](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
 

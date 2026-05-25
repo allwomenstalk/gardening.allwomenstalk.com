@@ -56,16 +56,16 @@ Well ladies, these are the things I think will spice up your yard! What have you
 
 ## Related Posts
 
-- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
-- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
-- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
-- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
 - [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
-- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
-- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
+- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
 - [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
+- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
+- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
+- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

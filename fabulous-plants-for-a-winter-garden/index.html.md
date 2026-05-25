@@ -68,16 +68,16 @@ Winter gardens don't have to be dull and dreary. A careful choice of plants can 
 
 ## Related Posts
 
-- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
-- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
 - [7 Ways to Maintain Your Garden All Year ...](https://gardening.allwomenstalk.com/ways-to-maintain-your-garden-all-year/)
-- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
-- [fruit vegetables market](https://food.allwomenstalk.com/spring-vegetables-to-snag-at-the-farmers-market/)
+- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
+- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
 - [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
-- [great gardening tips for spring](https://gardening.allwomenstalk.com/great-gardening-tips-for-a-gorgeous-spring-garden/)
-- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
+- [fruit vegetables market](https://food.allwomenstalk.com/spring-vegetables-to-snag-at-the-farmers-market/)
 - [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
+- [7 Techniques for Making Produce Last ...](https://food.allwomenstalk.com/techniques-for-making-produce-last/)
 - [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
+- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
+- [great gardening tips for spring](https://gardening.allwomenstalk.com/great-gardening-tips-for-a-gorgeous-spring-garden/)
 - [How to Keep Your Plants Warm during the Winter ...](https://gardening.allwomenstalk.com/how-to-keep-your-plants-warm-during-the-winter/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 

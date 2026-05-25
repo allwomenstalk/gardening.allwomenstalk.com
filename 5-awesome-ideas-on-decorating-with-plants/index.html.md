@@ -36,16 +36,16 @@ Top Photo Credit: [MRS TWINS](https://www.flickr.com/photos/sues_favourite_thing
 
 ## Related Posts
 
-- [decorating new home ideas](https://interior.allwomenstalk.com/decorating-ideas-for-your-new-home/)
-- [8 Garden Decorating Ideas for the Holidays ...](https://gardening.allwomenstalk.com/garden-decorating-ideas-for-the-holidays/)
-- [what is the most relaxing color](https://lifestyle.allwomenstalk.com/relaxing-color-combinations-for-your-home/)
-- [6 Ways to Brighten up Your Home with Fabric ...](https://lifestyle.allwomenstalk.com/ways-to-brighten-up-your-home-with-fabric-2/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/summer-friendly-home-accessories/)
-- [lighting ideas for home](https://lifestyle.allwomenstalk.com/home-lighting-ideas/)
-- [7 Decor Ideas Your Friends Will Envy ...](https://lifestyle.allwomenstalk.com/decor-ideas-your-friends-will-envy/)
 - [40 year old intern](https://lifestyle.allwomenstalk.com/the-almost-year-old-interns-5-tips-for-designing-your-space/)
+- [8 Garden Decorating Ideas for the Holidays ...](https://gardening.allwomenstalk.com/garden-decorating-ideas-for-the-holidays/)
 - [faux wood planters](https://lifestyle.allwomenstalk.com/ways-to-decorate-with-faux-wood/)
+- [7 Decor Ideas Your Friends Will Envy ...](https://lifestyle.allwomenstalk.com/decor-ideas-your-friends-will-envy/)
+- [6 Ways to Brighten up Your Home with Fabric ...](https://lifestyle.allwomenstalk.com/ways-to-brighten-up-your-home-with-fabric-2/)
 - [unique cool lamps](https://lifestyle.allwomenstalk.com/unique-lamps-for-your-apartment/)
+- [lighting ideas for home](https://lifestyle.allwomenstalk.com/home-lighting-ideas/)
+- [decorating new home ideas](https://interior.allwomenstalk.com/decorating-ideas-for-your-new-home/)
+- [what is the most relaxing color](https://lifestyle.allwomenstalk.com/relaxing-color-combinations-for-your-home/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: [boncey](https://www.flickr.com/photos/boncey/1551692989/)
 
 ## Related Posts
 
+- [5 Reasons to Have an Organic Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-an-organic-garden/)
+- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
+- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
+- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
 - [7 Gardening Blogs You Must Read ...](https://gardening.allwomenstalk.com/7-gardening-blogs-you-must-read/)
 - [5 Tips on Creating the Best Patio ...](https://gardening.allwomenstalk.com/5-tips-on-creating-the-best-patio/)
 - [5 Gardening Tips You Have to Have ...](https://gardening.allwomenstalk.com/5-gardening-tips-you-have-to-have/)
-- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
-- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
-- [5 Reasons to Have an Organic Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-an-organic-garden/)
+- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 - [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
-- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
-- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

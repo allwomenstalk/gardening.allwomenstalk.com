@@ -321,16 +321,16 @@ Do you garden? I hope these ideas are just what you need to go out there and cre
 
 ## Related Posts
 
-- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
-- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
-- [money flower ideas](https://diy.allwomenstalk.com/fantastic-ways-to-display-fall-flowers/)
-- [blue girl rose bush](https://gardening.allwomenstalk.com/gorgeous-roses-youll-wish-you-could-grow/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
-- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
-- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
-- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
 - [100 best gardening hacks and ideas](https://gardening.allwomenstalk.com/gardening-hacks-every-woman-needs-to-know/)
+- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
+- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
+- [money flower ideas](https://diy.allwomenstalk.com/fantastic-ways-to-display-fall-flowers/)
+- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
+- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
+- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
+- [blue girl rose bush](https://gardening.allwomenstalk.com/gorgeous-roses-youll-wish-you-could-grow/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Gardening Ideas ...](https://gardening.allwomenstalk.com/5-gardening-ideas/)
 

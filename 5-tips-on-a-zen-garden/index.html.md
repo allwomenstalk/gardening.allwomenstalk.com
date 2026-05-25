@@ -36,16 +36,16 @@ Top Photo Credit: [CyboRoZ](https://www.flickr.com/photos/filicudi/3385619823/)
 
 ## Related Posts
 
-- [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
-- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
-- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
+- [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
+- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25144027)
 
 ## Related Posts
 
-- [plants for hot climates](https://gardening.allwomenstalk.com/perfect-plants-for-hot-climates/)
-- [loreal la maximalist eyeshadow blinged brilliant](https://gardening.allwomenstalk.com/fab-gardening-tips-everyone-should-know/)
-- [8 Most Essential Gardening Tools ...](https://gardening.allwomenstalk.com/most-essential-gardening-tools/)
-- [7 Ways to Keep Your House Plants Healthy and Happy...](https://gardening.allwomenstalk.com/ways-to-keep-your-house-plants-healthy-and-happy/)
-- [7 Reasons to Plant a Vegetable Garden ...](https://gardening.allwomenstalk.com/reasons-to-plant-a-vegetable-garden/)
-- [7 Ways to Get Cheap Plants ...](https://gardening.allwomenstalk.com/ways-to-get-cheap-plants/)
 - [7 Delicious Fruits That Are Oh-so-Easy to Grow ...](https://gardening.allwomenstalk.com/fruits-that-are-easy-to-grow/)
+- [7 Ways to Keep Your House Plants Healthy and Happy...](https://gardening.allwomenstalk.com/ways-to-keep-your-house-plants-healthy-and-happy/)
 - [7 Expert Tips for Fresh Flowers ...](https://gardening.allwomenstalk.com/expert-tips-for-fresh-flowers/)
-- [8 Veggies That Are Easy to Grow ...](https://gardening.allwomenstalk.com/veggies-that-are-easy-to-grow/)
+- [8 Most Essential Gardening Tools ...](https://gardening.allwomenstalk.com/most-essential-gardening-tools/)
 - [8 Plants That Love the Shade ...](https://gardening.allwomenstalk.com/plants-that-love-the-shade/)
+- [7 Ways to Get Cheap Plants ...](https://gardening.allwomenstalk.com/ways-to-get-cheap-plants/)
+- [7 Reasons to Plant a Vegetable Garden ...](https://gardening.allwomenstalk.com/reasons-to-plant-a-vegetable-garden/)
+- [8 Veggies That Are Easy to Grow ...](https://gardening.allwomenstalk.com/veggies-that-are-easy-to-grow/)
+- [loreal la maximalist eyeshadow blinged brilliant](https://gardening.allwomenstalk.com/fab-gardening-tips-everyone-should-know/)
+- [plants for hot climates](https://gardening.allwomenstalk.com/perfect-plants-for-hot-climates/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 

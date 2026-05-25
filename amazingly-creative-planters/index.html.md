@@ -100,16 +100,16 @@ I hope that these** creative planters** inspired you to go the DIY way for your 
 
 ## Related Posts
 
-- [diybook](https://lifestyle.allwomenstalk.com/more-wonderful-diy-book-crafts/)
-- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
 - [cardboard upcycle](https://lifestyle.allwomenstalk.com/clever-ways-to-upcycle-cardboard/)
-- [how to make a peplum skirt](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
-- [diy lace crafts](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
-- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
-- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
-- [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
-- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
+- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
 - [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
+- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
+- [how to make a peplum skirt](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
+- [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
+- [diybook](https://lifestyle.allwomenstalk.com/more-wonderful-diy-book-crafts/)
+- [diy lace crafts](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
+- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
+- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)
 

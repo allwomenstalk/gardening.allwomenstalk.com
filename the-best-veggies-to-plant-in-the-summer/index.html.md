@@ -37,15 +37,15 @@ Top Photo Credit: [csafarmer](https://www.flickr.com/photos/21754292@N06/2104686
 ## Related Posts
 
 - [summer garden ideas](https://gardening.allwomenstalk.com/7-summer-garden-ideas/)
-- [oprahs favorite tequila](https://allwomenstalk.com/oprahs-favorite-summer-things/)
 - [7 Sizzling Summertime Highlights ...](https://hair.allwomenstalk.com/sizzling-summertime-highlights/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/poolside-pieces/)
-- [best summer snacks](https://allwomenstalk.com/top-8-summer-snacks/)
-- [tanning season](https://allwomenstalk.com/tanning-season/)
 - [what to do on summer nights](https://lifestyle.allwomenstalk.com/ways-to-enjoy-your-summer-nights-2/)
 - [6 Items I Keep in My Beach Bag ...](https://lifestyle.allwomenstalk.com/items-i-keep-in-my-beach-bag/)
 - [things to do to keep cool](https://lifestyle.allwomenstalk.com/summer-activities-to-keep-cool/)
+- [best summer snacks](https://allwomenstalk.com/top-8-summer-snacks/)
 - [So Labor Days over Summers Gone and the GUY NO...](https://allwomenstalk.com/so-labor-days-over-summers-gone-and-the-guy-no/)
+- [oprahs favorite tequila](https://allwomenstalk.com/oprahs-favorite-summer-things/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/poolside-pieces/)
+- [tanning season](https://allwomenstalk.com/tanning-season/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Types of Fertilizer to Use in Your Garden ...](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
 

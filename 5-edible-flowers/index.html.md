@@ -36,16 +36,16 @@ Top Photo Credit: [Marko_K](https://goo.gl/pj8uVO)
 
 ## Related Posts
 
+- [cool trees to grow](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
-- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
-- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
+- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)
 - [5 Gardening Ideas ...](https://gardening.allwomenstalk.com/5-gardening-ideas/)
-- [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
-- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
-- [cool trees to grow](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
-- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
+- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
+- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
+- [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
+- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

@@ -36,15 +36,15 @@ Top Photo Credit: [The.Imperfect.Photo.Addict](https://www.flickr.com/photos/ohh
 
 ## Related Posts
 
-- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
-- [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
-- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
-- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
-- [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
-- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
-- [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
 - [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
+- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
+- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
+- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
+- [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
+- [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
+- [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
+- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
 - [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)

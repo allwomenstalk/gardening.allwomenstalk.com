@@ -42,16 +42,16 @@ You might have been unaware that urban gardens exist, but there may well be one 
 
 ## Related Posts
 
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
-- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [easy to maintain](https://gardening.allwomenstalk.com/plants-that-are-easy-to-grow-and-maintain/)
-- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
-- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
-- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
-- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
-- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
 - [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
 - [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
+- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
+- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
+- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
+- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
+- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
+- [easy to maintain](https://gardening.allwomenstalk.com/plants-that-are-easy-to-grow-and-maintain/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Ways to Motivate Yourself to Make a Garden ...](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: _photobenedict_
 
 ## Related Posts
 
+- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
+- [is salvia the same as sage](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
 - [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
 - [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
-- [is salvia the same as sage](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
-- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
-- [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
-- [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
-- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
-- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
 - [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
+- [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
+- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
+- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
+- [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
 - [5 Ghost Facts ...](https://twilight.allwomenstalk.com/5-ghost-facts/)
 - [5 Cool Paranormal Facts ...](https://twilight.allwomenstalk.com/5-cool-paranormal-facts/)
 

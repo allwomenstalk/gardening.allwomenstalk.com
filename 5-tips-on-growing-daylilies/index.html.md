@@ -36,16 +36,16 @@ Top Photo Credit: [Michiel Thomas](https://www.flickr.com/photos/mitho/299083701
 
 ## Related Posts
 
-- [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
-- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
-- [tips for planting apple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-apple-trees/)
-- [5 Tips on Caring for Sunflowers . ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-sunflowers/)
-- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
-- [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
-- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
-- [5 Tips on Caring for Poinsettias ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-poinsettias/)
 - [5 Cool Veggies to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
 - [5 Tips on Caring for Your Lawn ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-lawn/)
+- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
+- [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
+- [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
+- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [tips for planting apple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-apple-trees/)
+- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
+- [5 Tips on Caring for Poinsettias ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-poinsettias/)
+- [5 Tips on Caring for Sunflowers . ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-sunflowers/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Growing Wild Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-wild-flowers/)
 

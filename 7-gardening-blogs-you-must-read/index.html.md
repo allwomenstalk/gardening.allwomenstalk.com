@@ -56,15 +56,15 @@ Top Photo Credit: castacant_
 
 ## Related Posts
 
-- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
 - [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
-- [5 Gardening Tips You Have to Have ...](https://gardening.allwomenstalk.com/5-gardening-tips-you-have-to-have/)
 - [5 Tips on Creating the Best Patio ...](https://gardening.allwomenstalk.com/5-tips-on-creating-the-best-patio/)
-- [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 - [5 Reasons to Have an Organic Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-an-organic-garden/)
-- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
-- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [5 Gardening Tips You Have to Have ...](https://gardening.allwomenstalk.com/5-gardening-tips-you-have-to-have/)
 - [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
+- [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
+- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
+- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 - [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 - [7 of My Favorite Gardening Blogs ...](https://gardening.allwomenstalk.com/7-of-my-favorite-gardening-blogs/)
 - [7 Gardening Blogs by Me ...](https://gardening.allwomenstalk.com/7-gardening-blogs-by-me/)

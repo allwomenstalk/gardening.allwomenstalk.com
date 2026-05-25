@@ -36,16 +36,16 @@ Top Photo Credit: [ianmichaelthomas](https://www.flickr.com/photos/7533960@N02/1
 
 ## Related Posts
 
-- [7 Beautiful Flowers ...](https://gardening.allwomenstalk.com/7-beautiful-flowers/)
-- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
-- [5 Tips on Mowing Your Grass ...](https://gardening.allwomenstalk.com/5-tips-on-mowing-your-grass/)
-- [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [why fertilize plants](https://gardening.allwomenstalk.com/5-reasons-to-fertilize-plants/)
-- [turf slitter](https://gardening.allwomenstalk.com/5-tools-from-a-garden/)
-- [5 Reasons to Use a Calendar to Keep Track of Your ...](https://gardening.allwomenstalk.com/5-reasons-to-use-a-calendar-to-keep-track-of-your-vegetables/)
+- [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [alternatives to soil](https://gardening.allwomenstalk.com/alternatives-to-needing-dirt-for-gardening/)
+- [5 Reasons to Use a Calendar to Keep Track of Your ...](https://gardening.allwomenstalk.com/5-reasons-to-use-a-calendar-to-keep-track-of-your-vegetables/)
+- [7 Beautiful Flowers ...](https://gardening.allwomenstalk.com/7-beautiful-flowers/)
 - [5 Secrets to a More Productive Garden ...](https://gardening.allwomenstalk.com/5-secrets-to-a-more-productive-garden/)
+- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
 - [what flowers only bloom at night](https://gardening.allwomenstalk.com/7-flowers-that-only-bloom-at-night/)
+- [turf slitter](https://gardening.allwomenstalk.com/5-tools-from-a-garden/)
+- [5 Tips on Mowing Your Grass ...](https://gardening.allwomenstalk.com/5-tips-on-mowing-your-grass/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 

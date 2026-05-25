@@ -36,16 +36,16 @@ Top Photo Credit: [Odalaigh](https://www.flickr.com/photos/odalaigh/2487442988/)
 
 ## Related Posts
 
-- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
 - [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
-- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
+- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
 - [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
 - [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
-- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
 - [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
 - [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
+- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
 - [greatgardendesign](https://lifestyle.allwomenstalk.com/great-garden-design-books/)
+- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 

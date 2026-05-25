@@ -36,16 +36,16 @@ Top Photo Credit: [ahp_ibanez](https://www.flickr.com/photos/29738009@N08/297546
 
 ## Related Posts
 
-- [i like gardening because](https://gardening.allwomenstalk.com/5-reasons-to-like-having-a-flower-garden/)
-- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
 - [5 FAQs on Gardening ...](https://gardening.allwomenstalk.com/5-faqs-on-gardening/)
-- [5 Ways to Get Your Husband to Work in the Garden w...](https://gardening.allwomenstalk.com/5-ways-to-get-your-husband-to-work-in-the-garden-with-you/)
-- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
-- [tips for growing cabbage](https://gardening.allwomenstalk.com/5-tips-on-growing-cabbage/)
-- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
-- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
-- [growing cherry trees](https://gardening.allwomenstalk.com/5-tips-on-growing-cherry-trees/)
 - [how to germinate luffa seeds indoors](https://gardening.allwomenstalk.com/5-tips-on-growing-luffa-seeds/)
+- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
+- [i like gardening because](https://gardening.allwomenstalk.com/5-reasons-to-like-having-a-flower-garden/)
+- [growing cherry trees](https://gardening.allwomenstalk.com/5-tips-on-growing-cherry-trees/)
+- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
+- [tips for growing cabbage](https://gardening.allwomenstalk.com/5-tips-on-growing-cabbage/)
+- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
+- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
+- [5 Ways to Get Your Husband to Work in the Garden w...](https://gardening.allwomenstalk.com/5-ways-to-get-your-husband-to-work-in-the-garden-with-you/)
 - [5 Tips on Growing Pumpkins ...](https://gardening.allwomenstalk.com/5-tips-on-growing-pumpkins/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
 

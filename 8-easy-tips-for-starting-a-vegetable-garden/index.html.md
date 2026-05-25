@@ -48,16 +48,16 @@ Top Photo Credit: [Downing Street](https://www.flickr.com/photos/downingstreet/3
 
 ## Related Posts
 
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
-- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
-- [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
-- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
-- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
-- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
+- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
+- [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
+- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
+- [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
+- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 

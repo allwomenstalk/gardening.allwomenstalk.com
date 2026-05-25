@@ -36,16 +36,16 @@ Top Photo Credit: [davydubbit](https://www.flickr.com/photos/davydubbit/36573051
 
 ## Related Posts
 
-- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
-- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
-- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
-- [thin radishes](https://gardening.allwomenstalk.com/5-tips-on-growing-radishes/)
 - [hardy hedges](https://gardening.allwomenstalk.com/kinds-of-hardy-hedges/)
+- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
+- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
+- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
+- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
+- [thin radishes](https://gardening.allwomenstalk.com/5-tips-on-growing-radishes/)
 - [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
+- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
 - [vegetable garden ideas](https://gardening.allwomenstalk.com/7-vegetable-garden-ideas/)
 - [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
-- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
-- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 

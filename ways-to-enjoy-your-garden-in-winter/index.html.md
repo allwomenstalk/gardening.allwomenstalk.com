@@ -56,16 +56,16 @@ Winter can seem a dull time of year for your garden, but with the right choice o
 
 ## Related Posts
 
-- [blue lagoon ekero](https://travel.allwomenstalk.com/winter-wonderlands-you-dont-want-to-miss/)
-- [chris mazder](https://celebs.allwomenstalk.com/athletes-you-cannot-miss-during-the-winter-olympics/)
-- [why i love cold weather](https://lifestyle.allwomenstalk.com/reasons-to-adore-winter-weather/)
-- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
-- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
-- [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
-- [ready for spring](https://inspiration.allwomenstalk.com/things-to-do-to-get-yourself-ready-for-spring/)
-- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
 - [fall squash varieties](https://food.allwomenstalk.com/different-varieties-of-winter-squash-you-have-to-try-this-fall/)
 - [trees strongest in autumn](https://inspiration.allwomenstalk.com/fall-trees-to-get-you-in-the-mood-for-the-season/)
+- [chris mazder](https://celebs.allwomenstalk.com/athletes-you-cannot-miss-during-the-winter-olympics/)
+- [blue lagoon ekero](https://travel.allwomenstalk.com/winter-wonderlands-you-dont-want-to-miss/)
+- [ready for spring](https://inspiration.allwomenstalk.com/things-to-do-to-get-yourself-ready-for-spring/)
+- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
+- [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
+- [why i love cold weather](https://lifestyle.allwomenstalk.com/reasons-to-adore-winter-weather/)
+- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
+- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
 - [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
 - [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
 

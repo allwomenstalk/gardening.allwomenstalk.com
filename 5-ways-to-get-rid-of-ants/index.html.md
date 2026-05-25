@@ -36,15 +36,15 @@ Top Photo Credit: [tropicaLiving](https://www.flickr.com/photos/tropicaliving/27
 
 ## Related Posts
 
+- [8 Ways to Prevent Strokes ...](https://health.allwomenstalk.com/8-ways-to-prevent-strokes/)
+- [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
+- [7 Ingenious Exercises That Could Help Those Horrib...](https://health.allwomenstalk.com/ingenious-exercises-that-could-help-those-horribly-painful-period-cramps/)
+- [7 Ways to Quickly Treat Diaper Rash ...](https://health.allwomenstalk.com/7-ways-to-quickly-treat-diaper-rash/)
+- [8 Ways to Tackle That Monster Migraine ...](https://health.allwomenstalk.com/8-ways-to-tackle-that-monster-migraine/)
 - [7 Remedies for PMS Cramps ...](https://health.allwomenstalk.com/7-remedies-for-pms-cramps/)
 - [7 Impressively Potent Remedies for Those Painfully...](https://health.allwomenstalk.com/impressively-potent-remedies-for-those-painfully-pesky-migraines/)
 - [ear ache home remedies](https://health.allwomenstalk.com/7-home-remedies-for-a-earache/)
-- [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
-- [8 Ways to Prevent Strokes ...](https://health.allwomenstalk.com/8-ways-to-prevent-strokes/)
-- [8 Ways to Tackle That Monster Migraine ...](https://health.allwomenstalk.com/8-ways-to-tackle-that-monster-migraine/)
-- [7 Ways to Quickly Treat Diaper Rash ...](https://health.allwomenstalk.com/7-ways-to-quickly-treat-diaper-rash/)
 - [7 Unbelievably Simple but Highly Effective Ways to...](https://health.allwomenstalk.com/unbelievably-simple-but-highly-effective-ways-to-treat-a-cold/)
-- [7 Ingenious Exercises That Could Help Those Horrib...](https://health.allwomenstalk.com/ingenious-exercises-that-could-help-those-horribly-painful-period-cramps/)
 - [5 Ways to Keep Mosquitoes Away ...](https://gardening.allwomenstalk.com/ways-to-keep-mosquitoes-away/)
 - [8 Ways to Get Rid of Unwanted House Guests ...](https://travel.allwomenstalk.com/8-ways-to-get-rid-of-unwanted-house-guests/)
 - [5 Ways to Keep a Vampire out of Your House ...](https://twilight.allwomenstalk.com/5-ways-to-keep-a-vampire-out-of-your-house/)

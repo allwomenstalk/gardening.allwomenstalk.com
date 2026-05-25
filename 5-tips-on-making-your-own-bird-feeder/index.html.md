@@ -37,15 +37,15 @@ Top Photo Credit: _stchuck_
 ## Related Posts
 
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
-- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
-- [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
 - [safe grilling tips](https://cooking.allwomenstalk.com/grilling-safety-tips/)
-- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
+- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
+- [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
 - [photographing butterflies](https://gardening.allwomenstalk.com/5-tips-on-photographing-butterflies/)
 - [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
-- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
-- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
+- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
 - [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
+- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
+- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
 - [5 Reasons to Make a Bird Feeder ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-bird-feeder/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

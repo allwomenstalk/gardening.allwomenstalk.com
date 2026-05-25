@@ -36,14 +36,14 @@ Top Photo Credit: [Mick Bourke](https://www.flickr.com/photos/mickbourke/4763719
 
 ## Related Posts
 
+- [best pitch fork for mulch](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-mulch/)
 - [5 Tips on Caring for an Indoor Tree ...](https://gardening.allwomenstalk.com/tips-on-caring-for-an-indoor-tree/)
+- [5 Fast Growing Trees ...](https://gardening.allwomenstalk.com/fast-growing-trees/)
 - [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
 - [5 Ways to Protect Emerging Plants from Damage ...](https://gardening.allwomenstalk.com/ways-to-protect-emerging-plants-from-damage/)
-- [5 Fast Growing Trees ...](https://gardening.allwomenstalk.com/fast-growing-trees/)
+- [5 of My Favorite Plants ...](https://gardening.allwomenstalk.com/5-of-my-favorite-plants/)
 - [5 Ways Gardening Relieves Stress ...](https://gardening.allwomenstalk.com/ways-gardening-relieves-stress/)
 - [The 5 Best Flowers for Dried Arrangements](https://gardening.allwomenstalk.com/the-best-flowers-for-dried-arrangements/)
-- [best pitch fork for mulch](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-mulch/)
-- [5 of My Favorite Plants ...](https://gardening.allwomenstalk.com/5-of-my-favorite-plants/)
 - [5 Gorgeous Annual Plants](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
 - [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)

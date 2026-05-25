@@ -36,16 +36,16 @@ Top Photo Credit: [Tut99 (Roger)](https://www.flickr.com/photos/tut99/1691223882
 
 ## Related Posts
 
-- [care for koi](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi/)
-- [5 Tips on Making the Right Pumpkin ...](https://gardening.allwomenstalk.com/5-tips-on-making-the-right-pumpkin/)
-- [5 Tips on Raising Ducks ...](https://gardening.allwomenstalk.com/5-tips-on-raising-ducks/)
-- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
+- [5 Tips on Chasing off Pests ...](https://gardening.allwomenstalk.com/5-tips-on-chasing-off-pests/)
 - [photographing butterflies](https://gardening.allwomenstalk.com/5-tips-on-photographing-butterflies/)
 - [5 Tips on Caring for a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-bird-feeder/)
-- [5 Tips on Making a Good KOI Pond ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-good-koi-pond/)
-- [5 Tips on Raising Rabbits ...](https://gardening.allwomenstalk.com/5-tips-on-raising-rabbits/)
+- [5 Tips on Making the Right Pumpkin ...](https://gardening.allwomenstalk.com/5-tips-on-making-the-right-pumpkin/)
 - [how do i use chopsticks](https://cooking.allwomenstalk.com/7-easy-steps-to-using-chopsticks/)
-- [5 Tips on Chasing off Pests ...](https://gardening.allwomenstalk.com/5-tips-on-chasing-off-pests/)
+- [5 Tips on Raising Rabbits ...](https://gardening.allwomenstalk.com/5-tips-on-raising-rabbits/)
+- [5 Tips on Raising Ducks ...](https://gardening.allwomenstalk.com/5-tips-on-raising-ducks/)
+- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
+- [5 Tips on Making a Good KOI Pond ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-good-koi-pond/)
+- [care for koi](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi/)
 - [5 Reasons to Make a Bird Feeder ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-bird-feeder/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

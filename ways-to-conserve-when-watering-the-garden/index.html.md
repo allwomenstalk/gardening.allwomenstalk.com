@@ -36,16 +36,16 @@ Top Photo Credit: [biologie.](https://www.flickr.com/photos/biologie-me/44369435
 
 ## Related Posts
 
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
 - [easiest plant to grow](https://gardening.allwomenstalk.com/easiest-plants-to-grow-in-your-garden/)
-- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [bougainvillea vine colors](https://gardening.allwomenstalk.com/5-tips-on-caring-for-and-growing-colorful-bougainvillea/)
-- [5 Tips on Growing Asparagus Fern ...](https://gardening.allwomenstalk.com/5-tips-on-growing-asparagus-fern/)
+- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [best soil for yucca plant indoor](https://gardening.allwomenstalk.com/plants-that-will-grow-in-clay-soil/)
-- [garden landscaping tips](https://gardening.allwomenstalk.com/7-garden-landscaping-tips/)
+- [5 Tips on Growing Asparagus Fern ...](https://gardening.allwomenstalk.com/5-tips-on-growing-asparagus-fern/)
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
+- [garden landscaping tips](https://gardening.allwomenstalk.com/7-garden-landscaping-tips/)
+- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: _Tony Howells_
 
 ## Related Posts
 
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
-- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
-- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
-- [garden landscaping tips](https://gardening.allwomenstalk.com/7-garden-landscaping-tips/)
-- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
-- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
-- [bougainvillea vine colors](https://gardening.allwomenstalk.com/5-tips-on-caring-for-and-growing-colorful-bougainvillea/)
+- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
 - [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [garden landscaping tips](https://gardening.allwomenstalk.com/7-garden-landscaping-tips/)
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
+- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
+- [bougainvillea vine colors](https://gardening.allwomenstalk.com/5-tips-on-caring-for-and-growing-colorful-bougainvillea/)
+- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
+- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

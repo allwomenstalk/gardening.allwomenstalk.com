@@ -36,16 +36,16 @@ Top Photo Credit: _Miriam :)_
 
 ## Related Posts
 
-- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
-- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
-- [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
-- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [5 Gardening Ideas ...](https://gardening.allwomenstalk.com/5-gardening-ideas/)
-- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
+- [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
+- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
+- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
+- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
+- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
 - [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
-- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
+- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 - [5 Ways to Grow the Best Strawberries ...](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
 

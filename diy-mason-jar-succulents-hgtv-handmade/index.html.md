@@ -22,16 +22,16 @@ I hope you liked the video.
 
 ## Related Posts
 
-- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
-- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
 - [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
-- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
-- [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
+- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
 - [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
 - [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
-- [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
+- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
 - [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
+- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
+- [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
+- [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
 - [12 Delightful Mason Jar Lighting Ideas ...](https://lifestyle.allwomenstalk.com/delightful-mason-jar-lighting-ideas/)
 - [8 Creative DIY Cloche Jars ...](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 

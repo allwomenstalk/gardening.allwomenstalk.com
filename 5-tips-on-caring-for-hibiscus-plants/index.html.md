@@ -36,16 +36,16 @@ Top Photo Credit: [Ray Horwath](https://www.flickr.com/photos/horwath/5014005008
 
 ## Related Posts
 
-- [5 Great Ground Covers for Your Spring Garden ...](https://gardening.allwomenstalk.com/5-great-ground-covers-for-your-spring-garden/)
-- [5 Tips on Starting a Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-garden/)
-- [5 Cool Garden Plants ...](https://gardening.allwomenstalk.com/5-cool-garden-plants/)
-- [novice gardener meaning](https://gardening.allwomenstalk.com/10-tips-for-novice-gardeners/)
 - [benefits of a plant](https://gardening.allwomenstalk.com/5-things-to-help-plants-grow-better/)
-- [5 Tips on Growing a Herb Garden ...](https://gardening.allwomenstalk.com/5-tips-on-growing-a-herb-garden/)
-- [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
-- [fun facts about gardening](https://gardening.allwomenstalk.com/5-facts-on-the-backyard-garden/)
+- [5 Cool Garden Plants ...](https://gardening.allwomenstalk.com/5-cool-garden-plants/)
 - [5 Tips on Growing Lilies ...](https://gardening.allwomenstalk.com/5-tips-on-growing-lilies/)
+- [novice gardener meaning](https://gardening.allwomenstalk.com/10-tips-for-novice-gardeners/)
+- [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 - [5 Reasons I like Gardening Magazines ...](https://gardening.allwomenstalk.com/5-reasons-i-like-gardening-magazines/)
+- [fun facts about gardening](https://gardening.allwomenstalk.com/5-facts-on-the-backyard-garden/)
+- [5 Tips on Growing a Herb Garden ...](https://gardening.allwomenstalk.com/5-tips-on-growing-a-herb-garden/)
+- [5 Tips on Starting a Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-garden/)
+- [5 Great Ground Covers for Your Spring Garden ...](https://gardening.allwomenstalk.com/5-great-ground-covers-for-your-spring-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 

@@ -56,16 +56,16 @@ Harvest, dry and store these herbs so that you can use them in dishes throughout
 
 ## Related Posts
 
-- [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
-- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
-- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
-- [why plants are important to humans](https://gardening.allwomenstalk.com/reasons-plants-are-important-to-the-earth-and-humankind/)
 - [7 Ways to Maintain Your Garden All Year ...](https://gardening.allwomenstalk.com/ways-to-maintain-your-garden-all-year/)
-- [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
-- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
-- [7 Brilliant Reasons to Grow Your Own Food ...](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-food/)
 - [indoor healing plants](https://gardening.allwomenstalk.com/herbs-that-are-easy-to-grow-indoors/)
 - [plants for a winter garden](https://gardening.allwomenstalk.com/fabulous-plants-for-a-winter-garden/)
+- [7 Ways to Keep Your Hands from Drying out during G...](https://gardening.allwomenstalk.com/ways-to-keep-your-hands-from-drying-out-during-gardening/)
+- [7 Brilliant Reasons to Grow Your Own Food ...](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-food/)
+- [9 Awesome Herbs and What You Can do with Them ...](https://food.allwomenstalk.com/awesome-herbs-and-what-you-can-do-with-them/)
+- [7 Plants That Keep Pests Away ...](https://gardening.allwomenstalk.com/plants-that-keep-pests-away/)
+- [9 Amazing Gardening Tips for Newbies ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-newbies/)
+- [why plants are important to humans](https://gardening.allwomenstalk.com/reasons-plants-are-important-to-the-earth-and-humankind/)
+- [7 anti-Aging Tricks to Keep in Mind While Gardenin...](https://gardening.allwomenstalk.com/anti-aging-tricks-to-keep-in-mind-while-gardening/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

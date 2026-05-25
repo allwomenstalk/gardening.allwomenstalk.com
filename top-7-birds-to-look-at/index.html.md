@@ -44,16 +44,16 @@ Top Photo Credit: [William Dalton](https://www.flickr.com/photos/bovinacowboy/10
 
 ## Related Posts
 
-- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
-- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
-- [do rabbits eat tickseed](https://gardening.allwomenstalk.com/plants-animals-wont-eat/)
-- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
-- [7 Health Benefits of a Pet ...](https://health.allwomenstalk.com/7-health-benefits-of-a-pet/)
-- [Dogs Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
-- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
-- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
+- [Dogs Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
+- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
+- [do rabbits eat tickseed](https://gardening.allwomenstalk.com/plants-animals-wont-eat/)
+- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
+- [7 Health Benefits of a Pet ...](https://health.allwomenstalk.com/7-health-benefits-of-a-pet/)
+- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
+- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [7 Cute Yet Unusual Animals ...](https://allwomenstalk.com/7-cute-yet-unusual-animals/)
 - [7 Great Animal Charities ...](https://allwomenstalk.com/7-great-animal-charities/)
 

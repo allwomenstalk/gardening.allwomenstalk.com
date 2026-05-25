@@ -36,16 +36,16 @@ Top Photo Credit: _Alec Pozner_
 
 ## Related Posts
 
-- [5 Secrets to a More Productive Garden ...](https://gardening.allwomenstalk.com/5-secrets-to-a-more-productive-garden/)
 - [why fertilize plants](https://gardening.allwomenstalk.com/5-reasons-to-fertilize-plants/)
-- [5 Benefits of Gardening ...](https://gardening.allwomenstalk.com/5-benefits-of-gardening/)
 - [5 Tips on Growing Citrus Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-citrus-trees/)
-- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
 - [growing cabbage tips](https://gardening.allwomenstalk.com/5-tips-on-planting-cabbage/)
 - [7 Beautiful Flowers ...](https://gardening.allwomenstalk.com/7-beautiful-flowers/)
-- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
 - [turf slitter](https://gardening.allwomenstalk.com/5-tools-from-a-garden/)
+- [5 Secrets to a More Productive Garden ...](https://gardening.allwomenstalk.com/5-secrets-to-a-more-productive-garden/)
+- [5 Benefits of Gardening ...](https://gardening.allwomenstalk.com/5-benefits-of-gardening/)
 - [5 Reasons to Use a Calendar to Keep Track of Your ...](https://gardening.allwomenstalk.com/5-reasons-to-use-a-calendar-to-keep-track-of-your-vegetables/)
+- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
+- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
 - [5 Tips on Caring for Maple Trees ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
 - [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
 

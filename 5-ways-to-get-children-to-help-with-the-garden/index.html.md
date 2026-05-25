@@ -36,16 +36,16 @@ Top Photo Credit: [David Hopkins Photography](https://www.flickr.com/photos/davi
 
 ## Related Posts
 
-- [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
+- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
+- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
+- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
+- [7 Ways to Encourage Your Children to Be Fit ...](https://health.allwomenstalk.com/ways-to-encourage-your-children-to-be-fit/)
+- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [7 Foods to Plant with the Kids ...](https://gardening.allwomenstalk.com/7-foods-to-plant-with-the-kids/)
 - [8 Tips on Dealing with an Epileptic Child ...](https://health.allwomenstalk.com/tips-on-dealing-with-an-epileptic-child/)
-- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
-- [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
-- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
-- [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
-- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
-- [7 Ways to Encourage Your Children to Be Fit ...](https://health.allwomenstalk.com/ways-to-encourage-your-children-to-be-fit/)
+- [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
+- [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Ways to Teach Kids Responsibility ...](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 

@@ -36,15 +36,15 @@ Top Photo Credit: [linda yvonne](https://www.flickr.com/photos/from_linda_yvonne
 
 ## Related Posts
 
-- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
+- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
+- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
+- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
 - [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
 - [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
-- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
-- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
 - [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
 - [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
-- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
 - [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)

@@ -36,16 +36,16 @@ Top Photo Credit: _Jiffy Cat_
 
 ## Related Posts
 
-- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
-- [kids gardening activities](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
-- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
-- [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
-- [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
-- [what to do in a sauna to pass time](https://health.allwomenstalk.com/great-things-to-do-in-a-sauna/)
 - [8 Delightful and Fun Ways to Pamper Yourself ...](https://health.allwomenstalk.com/delightful-and-fun-ways-to-pamper-yourself/)
-- [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
 - [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
 - [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
+- [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
+- [what to do in a sauna to pass time](https://health.allwomenstalk.com/great-things-to-do-in-a-sauna/)
+- [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
+- [kids gardening activities](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
+- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
+- [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
+- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 

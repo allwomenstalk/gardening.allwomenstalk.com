@@ -36,16 +36,16 @@ Top Photo Credit: [wishymom (Stephanie Wallace Photography)](https://www.flickr.
 
 ## Related Posts
 
+- [how to grow daylilies](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilies/)
+- [gardening](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
 - [worst smelling flower in the world](https://gardening.allwomenstalk.com/5-bad-smelling-plants-to-not-grow/)
-- [tips for planting apple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-apple-trees/)
-- [5 Tips on Growing Daffodils ...](https://gardening.allwomenstalk.com/5-tips-on-growing-daffodils/)
 - [5 Tips on Caring for Poinsettias ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-poinsettias/)
+- [tips for planting apple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-apple-trees/)
 - [5 Tips on Caring for Sunflowers . ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-sunflowers/)
 - [prettiest plants in the world](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
-- [how to grow daylilies](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilies/)
+- [5 Tips on Growing Daffodils ...](https://gardening.allwomenstalk.com/5-tips-on-growing-daffodils/)
 - [5 Tips on Making a Patio ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-patio/)
 - [gardening pick up lines](https://gardening.allwomenstalk.com/5-tips-to-follow-for-the-perfect-garden/)
-- [gardening](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 

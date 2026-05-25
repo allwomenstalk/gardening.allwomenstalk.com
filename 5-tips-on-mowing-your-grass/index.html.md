@@ -36,16 +36,16 @@ Top Photo Credit: [Sentrawoods.](https://www.flickr.com/photos/sentrawoods/25000
 
 ## Related Posts
 
-- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
-- [alternatives to soil](https://gardening.allwomenstalk.com/alternatives-to-needing-dirt-for-gardening/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
 - [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
+- [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
+- [alternatives to soil](https://gardening.allwomenstalk.com/alternatives-to-needing-dirt-for-gardening/)
+- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [Top 6 Cactus Plants to Have ...](https://gardening.allwomenstalk.com/top-6-cactus-plants-to-have/)
 - [5 Reasons to Make a Spring Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-spring-garden/)
 - [5 Garden Tips from Me to You ...](https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/)
-- [Top 6 Cactus Plants to Have ...](https://gardening.allwomenstalk.com/top-6-cactus-plants-to-have/)
 - [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
 - [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
-- [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 - [5 Tips on Keeping the Garden Beautiful ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-the-garden-beautiful/)
 

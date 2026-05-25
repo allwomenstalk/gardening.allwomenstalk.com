@@ -36,16 +36,16 @@ Top Photo Credit: [PatrickSmithPhotography](https://www.flickr.com/photos/patric
 
 ## Related Posts
 
-- [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
+- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
+- [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
+- [things in a garden](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
+- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
+- [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
+- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 - [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
 - [pumpkin growing tips](https://gardening.allwomenstalk.com/5-tips-on-growing-pumpkins/)
-- [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
-- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
-- [things in a garden](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
-- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [interesting facts about hydroponics](https://gardening.allwomenstalk.com/top-5-reasons-i-like-hydroponics/)
-- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 

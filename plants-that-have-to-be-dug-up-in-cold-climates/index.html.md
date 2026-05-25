@@ -36,16 +36,16 @@ Top Photo Credit: [jungle mama](https://www.flickr.com/photos/jungle_mama/374975
 
 ## Related Posts
 
-- [5 Interesting Plants for the Yard ...](https://gardening.allwomenstalk.com/interesting-plants-for-the-yard/)
-- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
-- [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
-- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
-- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
-- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
-- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
 - [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
-- [5 Reasons to Buy Seeds from Heirloom Plants ...](https://gardening.allwomenstalk.com/5-reasons-to-buy-seeds-from-heirloom-plants/)
 - [5 Tips on Starting Seeds inside ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-inside/)
+- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
+- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
+- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
+- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
+- [5 Reasons to Buy Seeds from Heirloom Plants ...](https://gardening.allwomenstalk.com/5-reasons-to-buy-seeds-from-heirloom-plants/)
+- [5 Interesting Plants for the Yard ...](https://gardening.allwomenstalk.com/interesting-plants-for-the-yard/)
+- [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
+- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
 - [5 Bushes to Have in Your Yard ...](https://gardening.allwomenstalk.com/5-bushes-to-have-in-your-yard/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 

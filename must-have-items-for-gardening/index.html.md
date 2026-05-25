@@ -54,16 +54,16 @@ Top Photo Credit: [vzonabaxter](https://www.flickr.com/photos/vzonabaxter/473023
 
 ## Related Posts
 
-- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
+- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
+- [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
+- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
 - [5 Tips on Planting Bulbs](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
 - [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
-- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
-- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
-- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
-- [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
-- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [5 Tips on Growing Beautiful Daffodils](https://gardening.allwomenstalk.com/tips-on-growing-beautiful-daffodils/)
+- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
+- [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
+- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 

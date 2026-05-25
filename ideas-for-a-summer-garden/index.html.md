@@ -36,16 +36,16 @@ Top Photo Credit: [hn.](https://www.flickr.com/photos/neumeyer/1021012326/)
 
 ## Related Posts
 
-- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
-- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
 - [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
-- [The 5 Best Flowers for Dried Arrangements](https://gardening.allwomenstalk.com/the-best-flowers-for-dried-arrangements/)
-- [5 Nice Perennial Plants ...](https://gardening.allwomenstalk.com/5-nice-perennial-plants/)
 - [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
 - [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
-- [5 Ways to Protect Emerging Plants from Damage ...](https://gardening.allwomenstalk.com/ways-to-protect-emerging-plants-from-damage/)
+- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
+- [5 Nice Perennial Plants ...](https://gardening.allwomenstalk.com/5-nice-perennial-plants/)
 - [angel trumpet plant care](https://gardening.allwomenstalk.com/5-tips-on-growing-angels-trumpet/)
-- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
+- [5 Ways to Protect Emerging Plants from Damage ...](https://gardening.allwomenstalk.com/ways-to-protect-emerging-plants-from-damage/)
+- [The 5 Best Flowers for Dried Arrangements](https://gardening.allwomenstalk.com/the-best-flowers-for-dried-arrangements/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

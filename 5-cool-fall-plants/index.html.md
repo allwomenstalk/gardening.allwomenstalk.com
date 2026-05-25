@@ -37,15 +37,15 @@ Top Photo Credit: [Martin LaBar](https://www.flickr.com/photos/martinlabar/43000
 ## Related Posts
 
 - [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
-- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
 - [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
 - [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
+- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
+- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
 - [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
 - [5 Trees for Small Spaces ...](https://gardening.allwomenstalk.com/5-trees-for-small-spaces/)
-- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 
