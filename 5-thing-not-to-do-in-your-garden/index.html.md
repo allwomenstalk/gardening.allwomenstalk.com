@@ -3,7 +3,7 @@ title: "5 Thing Not to do in Your Garden ..."
 description: "Don’t Leave Tools Lying about; Don’t Plant Too Early; Don’t Choose Plants That Aren’t Suitable for Your Region; Don’t Place Plants Too Close Together; Don’t Forget to Mark Where You Planted Seeds; More ..."
 url: "https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Thing Not to do in Your Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [programwitch](https://www.flickr.com/photos/programwitch/9094
 
 ## Related Posts
 
-- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
-- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [le stylo timeless spark](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
-- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
-- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
 - [7 things you should always keep secret](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
+- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
+- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
+- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
 - [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
+- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 

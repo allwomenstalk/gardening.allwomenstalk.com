@@ -3,7 +3,7 @@ title: "5 Most Popular Berries ..."
 description: "Cranberries; Raspberries; Blackberries; Strawberries; Blueberries; More ..."
 url: "https://gardening.allwomenstalk.com/5-popular-berries/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Most Popular Berries ...

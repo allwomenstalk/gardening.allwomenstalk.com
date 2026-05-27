@@ -3,7 +3,7 @@ title: "5 Things That Will Kill a Plant ..."
 description: "Urine; Bleach; Sunshine; Water; Fresh Cow Manure; More ..."
 url: "https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Things That Will Kill a Plant ...
@@ -36,16 +36,16 @@ Top Photo Credit: _GPMatteazzi_
 
 ## Related Posts
 
-- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
-- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
-- [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
-- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
-- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
-- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
+- [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
+- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
+- [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
+- [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
+- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
+- [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 - [5 Fragile Plants to Be Careful with ...](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
 - [5 Dangerous Things to Avoid in a Garden ...](https://gardening.allwomenstalk.com/5-dangerous-things-to-avoid-in-a-garden/)
 

@@ -3,7 +3,7 @@ title: "5 Poison Plants ..."
 description: "Azalea; Bleeding Heart; Daffodil; Foxglove; Ivy; More ..."
 url: "https://gardening.allwomenstalk.com/5-poison-plants/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Poison Plants ...
@@ -36,16 +36,16 @@ Top Photo Credit: [keithhull](https://goo.gl/bHIHfS)
 
 ## Related Posts
 
-- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
-- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
-- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
-- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 - [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
-- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
-- [how to germinate luffa seeds indoors](https://gardening.allwomenstalk.com/5-tips-on-growing-luffa-seeds/)
-- [how to grow maple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-maple-trees/)
+- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 - [5 FAQs on Gardening ...](https://gardening.allwomenstalk.com/5-faqs-on-gardening/)
+- [how to grow maple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-maple-trees/)
+- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
+- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
+- [how to germinate luffa seeds indoors](https://gardening.allwomenstalk.com/5-tips-on-growing-luffa-seeds/)
+- [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
+- [5 Tips on Growing Vegetables in Containers ...](https://gardening.allwomenstalk.com/5-tips-on-growing-vegetables-in-containers/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 - [5 Smelly Plants to Grow ...](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 

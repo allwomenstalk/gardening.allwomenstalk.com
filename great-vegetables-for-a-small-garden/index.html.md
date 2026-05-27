@@ -3,7 +3,7 @@ title: "5 Great Vegetables for a Small Garden ..."
 description: "Pole Beans; Brussels Sprouts; Cherry Tomatoes; Potatoes; Garlic; More ..."
 url: "https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Great Vegetables for a Small Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [glitzypursegirl](https://www.flickr.com/photos/49754167@N00/4
 
 ## Related Posts
 
-- [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
-- [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
-- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
-- [beautiful sunflowers](https://gardening.allwomenstalk.com/5-tips-on-growing-beautiful-sunflowers/)
-- [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
 - [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
-- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
-- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
+- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
 - [love sarra art couple](https://gardening.allwomenstalk.com/cool-annuals/)
+- [beautiful sunflowers](https://gardening.allwomenstalk.com/5-tips-on-growing-beautiful-sunflowers/)
+- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
+- [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
+- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
+- [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
+- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
+- [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

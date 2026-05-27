@@ -3,7 +3,7 @@ title: "5 Cool Annuals ..."
 description: "Black-eyed Susan Vine; Amaranthus Towers; Bells of Ireland; Catchfly Angel Rose; Eyeball Plant; More ..."
 url: "https://gardening.allwomenstalk.com/cool-annuals/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Cool Annuals ...
@@ -36,15 +36,15 @@ Top Photo Credit: [spike55151](https://www.flickr.com/photos/spike55151/14002806
 
 ## Related Posts
 
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
 - [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
 - [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
-- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [5 Fast Growing Plants](https://gardening.allwomenstalk.com/fast-growing-plants/)
 - [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
 - [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
+- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
 - [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)

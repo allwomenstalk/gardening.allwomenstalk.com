@@ -3,7 +3,7 @@ title: "5 Plants Poisonous to Cats ..."
 description: "Amaryllis; Easter Lily; Ivy; Mistletoe; Poinsettia; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Plants Poisonous to Cats ...
@@ -36,16 +36,16 @@ Top Photo Credit: [.::æ::. Irving .::æ::.](https://www.flickr.com/photos/irvma
 
 ## Related Posts
 
-- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
+- [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [delicate pink flowers](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
+- [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
+- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
+- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
 - [beautiful garden backgrounds](https://gardening.allwomenstalk.com/5-beautiful-garden-pictures-from-flickr-com/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
-- [delicate pink flowers](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
-- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
-- [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
-- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
+- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
 - [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 

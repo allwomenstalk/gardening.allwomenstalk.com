@@ -3,7 +3,7 @@ title: "5 Plants That Can Damage Your Home ..."
 description: "Madeira Vine; Willow Trees; Plants That Thrive in Alkaline Soil; Trees That Send out Runners; English Ivy; More ..."
 url: "https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/"
 category: "gardening"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Plants That Can Damage Your Home ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Keith.CA](https://www.flickr.com/photos/armstrongone/51209026
 
 ## Related Posts
 
-- [5 Great Vegetables for a Small Garden ...](https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/)
-- [5 Vegetables Kids Can Grow Indoors](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
-- [5 Tips on Making a Shade Garden](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
-- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
-- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
 - [5 Plants You Should Plant ...](https://gardening.allwomenstalk.com/5-plants-you-should-plant/)
-- [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
-- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
-- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
+- [5 Vegetables Kids Can Grow Indoors](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
 - [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
+- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
+- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
+- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
+- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
+- [5 Great Vegetables for a Small Garden ...](https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/)
+- [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
+- [5 Tips on Making a Shade Garden](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 
