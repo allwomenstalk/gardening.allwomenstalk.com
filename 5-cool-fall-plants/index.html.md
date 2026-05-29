@@ -3,7 +3,7 @@ title: "5 Cool Fall Plants ..."
 description: "Sweet Potato Vine; Forest Grass; Heuchera; Coleus; Mums; More ..."
 url: "https://gardening.allwomenstalk.com/5-cool-fall-plants/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Cool Fall Plants ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Martin LaBar](https://www.flickr.com/photos/martinlabar/43000
 
 ## Related Posts
 
-- [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
 - [5 Trees for Small Spaces ...](https://gardening.allwomenstalk.com/5-trees-for-small-spaces/)
+- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
 - [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
-- [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
-- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
-- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
+- [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
 - [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
+- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
+- [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 

@@ -3,7 +3,7 @@ title: "5 Myths about Gardening ..."
 description: "Watering the Lawn at Night is Better than Watering It in the Morning; Plant Tags Are Always Accurate when It States the Final Size of a Tree or Shrub; Bleach is Great for Sterilizing Gardening Tools; Piling Mulch against Tree Trunks is Best for the Tree; More Fertilizer is Better; More ..."
 url: "https://gardening.allwomenstalk.com/myths-about-gardening/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Myths about Gardening ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Dan.King](https://www.flickr.com/photos/dk400d/4056569601/)
 
 ## Related Posts
 
-- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
-- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
-- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
 - [5 Fast Growing Plants](https://gardening.allwomenstalk.com/fast-growing-plants/)
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
-- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
+- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
+- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
+- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
+- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
+- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

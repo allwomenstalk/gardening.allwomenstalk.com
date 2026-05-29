@@ -3,7 +3,7 @@ title: "5 Plants Safe for Cats ..."
 description: "Baby Tears; Bamboo; Hen and Chicks; Grape Hyacinth; Rabbits Foot Fern; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-safe-for-cats/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Plants Safe for Cats ...
@@ -36,16 +36,16 @@ Top Photo Credit: [nestmaker](https://www.flickr.com/photos/nestmaker/4771563908
 
 ## Related Posts
 
-- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
-- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
 - [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
-- [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
-- [delicate pink flowers](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
+- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
-- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
+- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
+- [delicate pink flowers](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
+- [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 

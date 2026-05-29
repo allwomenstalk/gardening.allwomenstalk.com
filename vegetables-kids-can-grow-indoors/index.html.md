@@ -3,7 +3,7 @@ title: "5 Vegetables Kids Can Grow Indoors"
 description: "Snow Peas; Pole Beans; Eggplants; Radishes; Carrots; More ..."
 url: "https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Vegetables Kids Can Grow Indoors
@@ -36,16 +36,16 @@ Top Photo Credit: [Meighan](https://www.flickr.com/photos/megz/2594994249/)
 
 ## Related Posts
 
-- [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
-- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
-- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
-- [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
-- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
-- [5 Tips on Making a Shade Garden](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
-- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
 - [5 Great Vegetables for a Small Garden ...](https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/)
-- [beautiful sunflowers](https://gardening.allwomenstalk.com/5-tips-on-growing-beautiful-sunflowers/)
+- [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
+- [5 Tips on Making a Shade Garden](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
+- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
+- [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
 - [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
+- [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
+- [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
+- [beautiful sunflowers](https://gardening.allwomenstalk.com/5-tips-on-growing-beautiful-sunflowers/)
+- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

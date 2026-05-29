@@ -3,7 +3,7 @@ title: "8 Plants That Love the Shade ..."
 description: "Iris Foetidissima; Omphalodes Cappadocica; Ruscus; Bleeding Heart; Green and Blue-Leaved Hostas; More ..."
 url: "https://gardening.allwomenstalk.com/plants-that-love-the-shade/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Plants That Love the Shade ...
@@ -62,16 +62,16 @@ What do you say, lovelies? Will any of these plants find a place in your home? O
 
 ## Related Posts
 
+- [7 Indoor Plants That Are Low Maintenance for the B...](https://gardening.allwomenstalk.com/indoor-plants-that-are-low-maintenance-for-the-beginner-gardener/)
+- [how to revive flowers with soda](https://gardening.allwomenstalk.com/must-know-tips-for-planting-a-flower-bed-late-in-the-year/)
 - [7 Types of Roses That Are Easy to Grow ...](https://gardening.allwomenstalk.com/types-of-roses-that-are-easy-to-grow/)
 - [first time garden tips](https://gardening.allwomenstalk.com/tips-for-your-first-vegetable-garden/)
+- [8 Routes to a Low-Maintenance Garden ...](https://gardening.allwomenstalk.com/routes-to-a-low-maintenance-garden/)
+- [7 Amazing Gardening Tips for Caring for Roses ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-caring-for-roses/)
 - [easy fruits to grow in pots](https://gardening.allwomenstalk.com/fruits-to-grow-in-containers/)
 - [8 Veggies That Are Easy to Grow ...](https://gardening.allwomenstalk.com/veggies-that-are-easy-to-grow/)
-- [8 Routes to a Low-Maintenance Garden ...](https://gardening.allwomenstalk.com/routes-to-a-low-maintenance-garden/)
 - [7 Ways to Make Sure You Have an Organic Garden Tha...](https://gardening.allwomenstalk.com/ways-to-make-sure-you-have-an-organic-garden-that-you-can-be-proud-of/)
 - [growing yourself back up](https://gardening.allwomenstalk.com/herbs-you-should-be-growing-yourself/)
-- [7 Indoor Plants That Are Low Maintenance for the B...](https://gardening.allwomenstalk.com/indoor-plants-that-are-low-maintenance-for-the-beginner-gardener/)
-- [7 Amazing Gardening Tips for Caring for Roses ...](https://gardening.allwomenstalk.com/amazing-gardening-tips-for-caring-for-roses/)
-- [how to revive flowers with soda](https://gardening.allwomenstalk.com/must-know-tips-for-planting-a-flower-bed-late-in-the-year/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 

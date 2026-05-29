@@ -3,7 +3,7 @@ title: "5 Plants Animals Wont Eat ..."
 description: "Basket of Gold – Aurinia Saxatalis; Butterfly Weed – Asclepias Tuberosa; Lavender – Lavandula Angustifolia; Russian Sage – Perovskia Atriplicifolia; Thread Leaf Tickseed – Coreopsis Verticillata; More ..."
 url: "https://gardening.allwomenstalk.com/plants-animals-wont-eat/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Plants Animals Wont Eat ...
@@ -36,14 +36,14 @@ Top Photo Credit: [duanekeys](https://www.flickr.com/photos/duanekeys/41310070/)
 
 ## Related Posts
 
-- [Dogs Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
-- [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
-- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
 - [Adopt a Shelter Dog Month ...](https://allwomenstalk.com/adopt-a-shelter-dog-month/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
+- [Dogs Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
 - [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
+- [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
 - [Give a Dog a Bone ...](https://allwomenstalk.com/give-a-dog-a-bone/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
 - [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
 - [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)

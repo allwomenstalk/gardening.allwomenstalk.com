@@ -3,7 +3,7 @@ title: "7 Foods to Plant with the Kids ..."
 description: "Herbs; Lettuce; Potatoes; Pumpkins; Carrots; More ..."
 url: "https://gardening.allwomenstalk.com/7-foods-to-plant-with-the-kids/"
 category: "gardening"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Foods to Plant with the Kids ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Downing Street](https://www.flickr.com/photos/downingstreet/3
 
 ## Related Posts
 
-- [7 Ways to Encourage Your Children to Be Fit ...](https://health.allwomenstalk.com/ways-to-encourage-your-children-to-be-fit/)
-- [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
-- [8 Tips on Dealing with an Epileptic Child ...](https://health.allwomenstalk.com/tips-on-dealing-with-an-epileptic-child/)
+- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
 - [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
-- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
+- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [fun kids food](https://lifestyle.allwomenstalk.com/fun-ways-kids-can-eat-their-food/)
 - [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
+- [8 Tips on Dealing with an Epileptic Child ...](https://health.allwomenstalk.com/tips-on-dealing-with-an-epileptic-child/)
+- [7 Ways to Encourage Your Children to Be Fit ...](https://health.allwomenstalk.com/ways-to-encourage-your-children-to-be-fit/)
 - [8 Tips to Help Kids Cope with Losing a Pet ...](https://lifestyle.allwomenstalk.com/tips-to-help-kids-cope-with-losing-a-pet/)
-- [good influences](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
-- [crafty ideas](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
+- [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
+- [wii game for 4 year old](https://lifestyle.allwomenstalk.com/active-wii-games-for-kids/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Plants That Go with the Fall ...](https://gardening.allwomenstalk.com/5-plants-that-go-with-the-fall/)
 
