@@ -3,7 +3,7 @@ title: "7 Killer Plants You Dont Want in Your Garden ..."
 description: "Venus Fly Trap; Genlisea; Utricularia Lateriflora; Heliamphora; Sundew Plants; More ..."
 url: "https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Killer Plants You Dont Want in Your Garden ...
@@ -56,16 +56,16 @@ I mentioned that you wouldn’t want these carnivorous plants in your garden but
 
 ## Related Posts
 
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
-- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
 - [blue girl rose bush](https://gardening.allwomenstalk.com/gorgeous-roses-youll-wish-you-could-grow/)
+- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
+- [hybrid vegetables](https://food.allwomenstalk.com/fruit-and-veg-hybrids-that-you-need-to-try-this-year/)
+- [dull flowers](https://gardening.allwomenstalk.com/fields-of-flowers-to-bring-a-little-joy-to-a-dull-day/)
+- [beautiful orchids](https://gardening.allwomenstalk.com/gorgeous-orchids-that-show-their-diversity-and-beauty/)
+- [100 best gardening hacks and ideas](https://gardening.allwomenstalk.com/gardening-hacks-every-woman-needs-to-know/)
+- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [money flower ideas](https://diy.allwomenstalk.com/fantastic-ways-to-display-fall-flowers/)
 - [little herb garden](https://food.allwomenstalk.com/great-ideas-for-growing-your-own-herbs-and-using-them/)
-- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
-- [100 best gardening hacks and ideas](https://gardening.allwomenstalk.com/gardening-hacks-every-woman-needs-to-know/)
-- [dull flowers](https://gardening.allwomenstalk.com/fields-of-flowers-to-bring-a-little-joy-to-a-dull-day/)
-- [hybrid vegetables](https://food.allwomenstalk.com/fruit-and-veg-hybrids-that-you-need-to-try-this-year/)
-- [beautiful orchids](https://gardening.allwomenstalk.com/gorgeous-orchids-that-show-their-diversity-and-beauty/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 

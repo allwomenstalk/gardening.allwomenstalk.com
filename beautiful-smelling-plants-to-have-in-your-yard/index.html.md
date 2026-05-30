@@ -3,7 +3,7 @@ title: "7 Beautiful Smelling Plants to Have in Your Yard ..."
 description: "Hyacinth; Dianthus; Gardenia; Sweet Autumn Clematis; Sweet Pea; More ..."
 url: "https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Beautiful Smelling Plants to Have in Your Yard ...
@@ -56,16 +56,16 @@ So girls, these are just a few of the flowers that are out there that smell oh-s
 
 ## Related Posts
 
-- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
-- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
-- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
+- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
 - [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
 - [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
-- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
-- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
 - [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
 - [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
+- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
+- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

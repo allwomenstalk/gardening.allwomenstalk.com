@@ -3,7 +3,7 @@ title: "8 Extraordinary Gardens of the World ..."
 description: "Lost Gardens of Heligan, UK; Keukenhof, Holland; Giverny, France; Butchart Gardens, Canada; Shalimar Gardens, Pakistan; More ..."
 url: "https://gardening.allwomenstalk.com/extraordinary-gardens-of-the-world/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Extraordinary Gardens of the World ...
@@ -46,16 +46,16 @@ Wherever you travel, there's bound to be one or more beautiful gardens there. It
 
 ## Related Posts
 
-- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
-- [culture in the middle east](https://travel.allwomenstalk.com/great-ways-to-experience-middle-east-culture/)
-- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
-- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
 - [best places to study abroad in spain](https://travel.allwomenstalk.com/best-places-to-study-abroad/)
-- [country speaks spanish](https://travel.allwomenstalk.com/places-outside-of-spain-where-they-speak-spanish/)
-- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
+- [culture in the middle east](https://travel.allwomenstalk.com/great-ways-to-experience-middle-east-culture/)
 - [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
-- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
+- [country speaks spanish](https://travel.allwomenstalk.com/places-outside-of-spain-where-they-speak-spanish/)
 - [reasons to visit russia](https://travel.allwomenstalk.com/things-to-love-about-russia/)
+- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
+- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
+- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
+- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
+- [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 

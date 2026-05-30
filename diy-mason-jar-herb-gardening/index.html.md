@@ -3,7 +3,7 @@ title: "DIY Mason Jar Herb Gardening ..."
 description: "Home; Inexpensive; Convenient; Flavor; More ..."
 url: "https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # DIY Mason Jar Herb Gardening ...
@@ -34,16 +34,16 @@ So, there you have it. DIY mason jar herb gardening 101!
 
 ## Related Posts
 
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
 - [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
-- [Yes You Can Grow Your Own Herbs ...](https://allwomenstalk.com/grow-your-own-herbs/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
-- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
-- [whats the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
-- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
 - [10 Flowers to Plant This Spring ...](https://allwomenstalk.com/10-flowers-to-plant-this-spring/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
+- [whats the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
+- [Yes You Can Grow Your Own Herbs ...](https://allwomenstalk.com/grow-your-own-herbs/)
+- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
+- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
 - [12 Delightful Mason Jar Lighting Ideas ...](https://lifestyle.allwomenstalk.com/delightful-mason-jar-lighting-ideas/)
 - [12 Terrific DIY Terrarium Ideas ...](https://lifestyle.allwomenstalk.com/terrific-diy-terrarium-ideas/)
 

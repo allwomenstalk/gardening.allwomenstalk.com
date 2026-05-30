@@ -3,7 +3,7 @@ title: "5 of My Favorite Plants ..."
 description: "Forget-me-not; Crocus; Schefflera; Old-fashioned Bleeding Heart; Purple Ice Plant; More ..."
 url: "https://gardening.allwomenstalk.com/5-of-my-favorite-plants/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 5 of My Favorite Plants ...
@@ -36,16 +36,16 @@ Top Photo Credit: [PollyMM](https://www.flickr.com/photos/pollymm/451092540/)
 
 ## Related Posts
 
-- [5 Gorgeous Annual Plants](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
-- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
 - [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
-- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
-- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
-- [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
 - [best pitch fork for mulch](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-mulch/)
 - [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
-- [The 5 Best Plants for Cool Climates](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
 - [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
+- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
+- [5 Gorgeous Annual Plants](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
+- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [The 5 Best Plants for Cool Climates](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
+- [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
+- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Fragile Plants to Be Careful with ...](https://gardening.allwomenstalk.com/5-fragile-plants-to-be-careful-with/)
 

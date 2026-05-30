@@ -3,7 +3,7 @@ title: "5 Poisonous Plants ..."
 description: "Hyacinth; Holly; Caladium; Bleeding Heart; Azalea; More ..."
 url: "https://gardening.allwomenstalk.com/5-poisonous-plants/"
 category: "gardening"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 5 Poisonous Plants ...
@@ -37,15 +37,15 @@ Top Photo Credit: [Little♥Krawler](https://www.flickr.com/photos/little_krawle
 ## Related Posts
 
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
-- [5 Tips on Growing Citrus Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-citrus-trees/)
 - [how to grow the best strawberries](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-strawberries/)
-- [why fertilize plants](https://gardening.allwomenstalk.com/5-reasons-to-fertilize-plants/)
 - [5 Rules to Planting Spring Plants ...](https://gardening.allwomenstalk.com/5-rules-to-planting-spring-plants/)
-- [planting weeping willow cuttings](https://gardening.allwomenstalk.com/5-tips-on-growing-a-healthy-weeping-willow/)
-- [5 Benefits of Gardening ...](https://gardening.allwomenstalk.com/5-benefits-of-gardening/)
-- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
-- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
+- [why fertilize plants](https://gardening.allwomenstalk.com/5-reasons-to-fertilize-plants/)
 - [growing cabbage tips](https://gardening.allwomenstalk.com/5-tips-on-planting-cabbage/)
+- [planting weeping willow cuttings](https://gardening.allwomenstalk.com/5-tips-on-growing-a-healthy-weeping-willow/)
+- [winter gardening tips](https://gardening.allwomenstalk.com/5-winter-gardening-tips/)
+- [5 Garden Tips on Ferns ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ferns/)
+- [5 Benefits of Gardening ...](https://gardening.allwomenstalk.com/5-benefits-of-gardening/)
+- [5 Tips on Growing Citrus Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-citrus-trees/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 - [5 Smelly Plants to Grow ...](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 
