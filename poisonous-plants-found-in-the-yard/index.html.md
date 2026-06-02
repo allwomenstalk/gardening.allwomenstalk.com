@@ -3,7 +3,7 @@ title: "5 Poisonous Plants Found in the Yard ..."
 description: "Poison Ivy; Poison Oak; Poison Sumac; Stinging Nettle; Oleander; More ..."
 url: "https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/"
 category: "gardening"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 5 Poisonous Plants Found in the Yard ...
@@ -36,15 +36,15 @@ Top Photo Credit: [roseofredrock](https://www.flickr.com/photos/roseofredrock/27
 
 ## Related Posts
 
-- [forcing poinsettias to bloom](https://allwomenstalk.com/10-tips-on-gardening-you-should-know/)
-- [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
-- [cute garden accessories](https://allwomenstalk.com/7-pretty-garden-accessories/)
-- [greatgardendesign](https://lifestyle.allwomenstalk.com/great-garden-design-books/)
-- [10 most beautiful flowers](https://allwomenstalk.com/10-most-beautiful-flowers-you-can-grow/)
 - [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
+- [forcing poinsettias to bloom](https://allwomenstalk.com/10-tips-on-gardening-you-should-know/)
 - [what to bring instead of flowers](https://allwomenstalk.com/8-things-to-buy-instead-of-flowers/)
-- [Orchid Show at the New York Botanical Garden ...](https://allwomenstalk.com/orchid-show-at-the-new-york-botanical-garden/)
+- [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
+- [greatgardendesign](https://lifestyle.allwomenstalk.com/great-garden-design-books/)
 - [10 Gorgeous Flowers You Can Send ...](https://love.allwomenstalk.com/10-gorgeous-flowers-you-can-send/)
+- [Orchid Show at the New York Botanical Garden ...](https://allwomenstalk.com/orchid-show-at-the-new-york-botanical-garden/)
+- [10 most beautiful flowers](https://allwomenstalk.com/10-most-beautiful-flowers-you-can-grow/)
+- [cute garden accessories](https://allwomenstalk.com/7-pretty-garden-accessories/)
 - [riche stylo shadow garde](https://allwomenstalk.com/10-ways-to-decorate-your-garden-parties/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)

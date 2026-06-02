@@ -3,7 +3,7 @@ title: "What do You Need to Grow Your Own Herb Garden?"
 description: "Fan Planter; Burlap Hanger; Wooden Planter with Chalkboard Label; Self Watering Planter; Herb Garden Set; More ..."
 url: "https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/"
 category: "gardening"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # What do You Need to Grow Your Own Herb Garden?
@@ -180,16 +180,16 @@ What herbs will you be growing this spring?
 
 ## Related Posts
 
-- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
-- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
-- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
-- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
-- [southern home dcor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
-- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
-- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
 - [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
+- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
+- [southern home dcor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
+- [Undemanding Houseplants for Busy Girls  Who Still ...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
+- [Plants Thatll Bring Pollinators to Your Garden ...](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
+- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

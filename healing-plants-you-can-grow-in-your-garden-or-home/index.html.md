@@ -3,7 +3,7 @@ title: "9 Healing Plants You Can Grow in Your Garden or Home ..."
 description: "Aloe Vera; Peppermint; Oregano; Thyme; Lavender; More ..."
 url: "https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/"
 category: "gardening"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Healing Plants You Can Grow in Your Garden or Home ...
@@ -68,16 +68,16 @@ These amazing healing plants are some of my favorites, but I’d love to know if
 
 ## Related Posts
 
-- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
 - [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
-- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
 - [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
-- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
-- [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
-- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
 - [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
+- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
+- [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
+- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 

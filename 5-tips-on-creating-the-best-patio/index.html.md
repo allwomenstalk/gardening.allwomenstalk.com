@@ -3,7 +3,7 @@ title: "5 Tips on Creating the Best Patio ..."
 description: "Have Lots of Color; Rearrange Often; Sometimes Less is More; Add Non-plant Items; Keep Plants in Manageable Pots; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-creating-the-best-patio/"
 category: "gardening"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 5 Tips on Creating the Best Patio ...
@@ -36,15 +36,15 @@ Top Photo Credit: [cleanairgardening](https://www.flickr.com/photos/cleanairgard
 
 ## Related Posts
 
-- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
 - [5 Gardening Tips You Have to Have ...](https://gardening.allwomenstalk.com/5-gardening-tips-you-have-to-have/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
-- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
 - [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
-- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
-- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
-- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
 - [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
+- [smelly plant](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
+- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
+- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
+- [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
 - [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)

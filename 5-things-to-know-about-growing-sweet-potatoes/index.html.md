@@ -3,7 +3,7 @@ title: "5 Things to Know about Growing Sweet Potatoes ..."
 description: "Don’t Plant Them Too Deep; Water Them but Don’t Drown Them; Fertilizer Isn’t Necessary; Remember They Are Vines; Mice Can Be Bothersome; More ..."
 url: "https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/"
 category: "gardening"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 5 Things to Know about Growing Sweet Potatoes ...
@@ -38,14 +38,14 @@ Top Photo Credit: [A Worthy Image](https://www.flickr.com/photos/aworthyimage/20
 
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
-- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
-- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
 - [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
 - [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
-- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
 - [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
 - [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
 - [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 
