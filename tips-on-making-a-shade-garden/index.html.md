@@ -1,12 +1,12 @@
 ---
-title: "5 Tips on Making a Shade Garden"
+title: "5 Tips on Making a Shade Garden …"
 description: "Locate a Nice Shady Spot for Your Garden; Get the Ground Ready before Buying Your Plants; Make Sure the Plants You Purchase Will Thrive in the Shade; Add Some Garden Lights; Mulch around Plants to Maintain Moisture and Avoid Weeding; More ..."
 url: "https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 5 Tips on Making a Shade Garden
+# 5 Tips on Making a Shade Garden …
 
 Shade gardens are a lot of fun to create, due to the very different plants used in them. Plants that love the shade are plentiful. There are a lot that produce tons of colorful blooms and remain dark green well into the fall. Here are 5 tips on making a shade garden. I hope you can use them for your gardening needs.
 
@@ -36,15 +36,15 @@ Top Photo Credit: [pawightm](https://www.flickr.com/photos/13984968@N02/46859152
 
 ## Related Posts
 
-- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
 - [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 - [beautiful sunflowers](https://gardening.allwomenstalk.com/5-tips-on-growing-beautiful-sunflowers/)
+- [love sarra art couple](https://gardening.allwomenstalk.com/cool-annuals/)
 - [5seeds](https://gardening.allwomenstalk.com/5-seeds-you-have-to-plant/)
 - [5 Tips on Starting Seeds Indoors ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-indoors/)
+- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
+- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
 - [5 Tips from a Real Gardener ...](https://gardening.allwomenstalk.com/tips-from-a-real-gardener/)
 - [5 Great Vegetables for a Small Garden ...](https://gardening.allwomenstalk.com/great-vegetables-for-a-small-garden/)
-- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
-- [love sarra art couple](https://gardening.allwomenstalk.com/cool-annuals/)
 - [5 Ways to Make the Most of Your Time in the Garden...](https://gardening.allwomenstalk.com/ways-to-make-the-most-of-your-time-in-the-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)

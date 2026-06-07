@@ -3,7 +3,7 @@ title: "5 Fun Garden Activities for Kids ..."
 description: "Make a Sunflower Fort; Pressing Flowers; Painting Flower Pots; Sprouting Seeds; Watching Carrots Grow in an Aquarium; More ..."
 url: "https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 5 Fun Garden Activities for Kids ...
@@ -36,16 +36,16 @@ Top Photo Credit: [etgeek (Eric)](https://www.flickr.com/photos/tofsrud/28945200
 
 ## Related Posts
 
-- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
-- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
+- [oh, what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
+- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
 - [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
 - [7 Things to do While You Are Sick ...](https://health.allwomenstalk.com/7-things-to-do-while-you-are-sick/)
-- [8 Delightful and Fun Ways to Pamper Yourself ...](https://health.allwomenstalk.com/delightful-and-fun-ways-to-pamper-yourself/)
 - [what to do in a sauna to pass time](https://health.allwomenstalk.com/great-things-to-do-in-a-sauna/)
 - [10 fun things to do at home](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)
+- [sportsyou](https://lifestyle.allwomenstalk.com/water-sports-you-should-try/)
+- [party guests](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
+- [8 Delightful and Fun Ways to Pamper Yourself ...](https://health.allwomenstalk.com/delightful-and-fun-ways-to-pamper-yourself/)
 - [things to do on break at work](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-your-lunch-break/)
-- [oh what a lovely tea party](https://lifestyle.allwomenstalk.com/tea-party-ideas/)
-- [picnic friendly food](https://lifestyle.allwomenstalk.com/great-picnic-basket-ideas-for-a-great-day-out/)
 - [7 Summer Activities for Bored Preschoolers ...](https://parenting.allwomenstalk.com/summer-activities-for-bored-preschoolers/)
 - [5 Things Kids Can do in a Garden ...](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
 

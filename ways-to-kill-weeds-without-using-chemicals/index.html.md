@@ -3,7 +3,7 @@ title: "7 Ways to Kill Weeds without Using Chemicals ..."
 description: "Boiling Water; Borax; Cornmeal; Baking Soda; Salt; More ..."
 url: "https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Ways to Kill Weeds without Using Chemicals ...
@@ -43,15 +43,15 @@ Weeds can be persistent little blighters, so I won’t tell you these chemical-f
 ## Related Posts
 
 - [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
-- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
-- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
 - [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
-- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
+- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
+- [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
+- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
+- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

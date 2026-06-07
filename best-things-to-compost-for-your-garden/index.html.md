@@ -3,7 +3,7 @@ title: "9 Best Things to Compost for Your Garden ..."
 description: "Juice Pulp; Egg Shells; Coffee Grounds; Tea Bags; Lawn Clippings; More ..."
 url: "https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 9 Best Things to Compost for Your Garden ...
@@ -68,16 +68,16 @@ Some of the worst things to compost include cooking oil, walnuts, dead plants, a
 
 ## Related Posts
 
-- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
-- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
-- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
-- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
-- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
 - [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
-- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
+- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
+- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
 - [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
+- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
+- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
+- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
+- [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 

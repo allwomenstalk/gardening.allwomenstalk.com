@@ -1,12 +1,12 @@
 ---
-title: "5 Plants That Will Grow in Clay Soil"
+title: "5 Plants That Will Grow in Clay Soil …"
 description: "Yucca; Black-eyed Susan; Purple Coneflower; Butterfly Weed; Aster; More ..."
 url: "https://gardening.allwomenstalk.com/plants-that-will-grow-in-clay-soil/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 5 Plants That Will Grow in Clay Soil
+# 5 Plants That Will Grow in Clay Soil …
 
 I have a yard filled with randomly placed patches of clay. Knowing what types of flowers will do well in the areas where most of the clay is found in the soil makes my time gardening more productive. Planting a flower in soil that has high clay content and finding out much later that the flower would have done much better in a patch of well-draining soil seems like a waste of a perfectly good plant. If you have found yourself in a similar situation, then you might be interested in these 5 plants that will grow in clay soil I’ve listed here.
 
@@ -37,15 +37,15 @@ Top Photo Credit: [Ransome](https://www.flickr.com/photos/ransomed/3811547676/)
 ## Related Posts
 
 - [5 Interesting Plants for the Yard ...](https://gardening.allwomenstalk.com/interesting-plants-for-the-yard/)
-- [5 Tips on Starting Seeds inside ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-inside/)
+- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
+- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
+- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
 - [5 Reasons to Buy Seeds from Heirloom Plants ...](https://gardening.allwomenstalk.com/5-reasons-to-buy-seeds-from-heirloom-plants/)
 - [loreal paris riche le stylo garde](https://gardening.allwomenstalk.com/plants-that-have-to-be-dug-up-in-cold-climates/)
-- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
-- [5 Tips for Designing a Garden ...](https://gardening.allwomenstalk.com/5-tips-for-designing-a-garden/)
 - [5 Tips on Raising Dahlias ...](https://gardening.allwomenstalk.com/tips-on-raising-dahlias/)
-- [5 Excellent Plants for a Shade Garden ...](https://gardening.allwomenstalk.com/excellent-plants-for-a-shade-garden/)
 - [best flowers for bouquet](https://gardening.allwomenstalk.com/the-best-flowers-to-use-for-fresh-cut-bouquets/)
 - [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
+- [5 Tips on Starting Seeds inside ...](https://gardening.allwomenstalk.com/5-tips-on-starting-seeds-inside/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Smelly Plants to Grow ...](https://gardening.allwomenstalk.com/5-smelly-plants-to-grow/)
 

@@ -1,12 +1,12 @@
 ---
-title: "5 Plants Animals Wont Eat ..."
+title: "5 Plants Animals Won't Eat ..."
 description: "Basket of Gold – Aurinia Saxatalis; Butterfly Weed – Asclepias Tuberosa; Lavender – Lavandula Angustifolia; Russian Sage – Perovskia Atriplicifolia; Thread Leaf Tickseed – Coreopsis Verticillata; More ..."
 url: "https://gardening.allwomenstalk.com/plants-animals-wont-eat/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 5 Plants Animals Wont Eat ...
+# 5 Plants Animals Won't Eat ...
 
 Deer and rabbits seem to be the culprits I’ve seen munching on plants in the garden. It seems like they will eat just about anything. Thankfully there are some plants that they don’t find very tasty, which means I can plants these particular plants in my garden and sleep peacefully knowing they will still be there in the morning. Here are 5 plants animals won’t eat.
 
@@ -36,18 +36,18 @@ Top Photo Credit: [duanekeys](https://www.flickr.com/photos/duanekeys/41310070/)
 
 ## Related Posts
 
-- [Give a Dog a Bone ...](https://allwomenstalk.com/give-a-dog-a-bone/)
-- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
 - [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
-- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
-- [Dogs Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
-- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
-- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
+- [Give a Dog a Bone ...](https://allwomenstalk.com/give-a-dog-a-bone/)
+- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
+- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
 - [Adopt a Shelter Dog Month ...](https://allwomenstalk.com/adopt-a-shelter-dog-month/)
+- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
+- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
-- [5 Cool Veggies to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
+- [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
 
 ## Site Information
 

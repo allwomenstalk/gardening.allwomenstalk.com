@@ -1,12 +1,12 @@
 ---
-title: "The 5 Best Plants for Cool Climates"
+title: "The 5 Best Plants for Cool Climates …"
 description: "Wild Horses Reblooming Daylily; Geranium Thumping Heart; Mexican Shell Flower Pink; Asclepias Mixture; Elodie Lily; More ..."
 url: "https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/"
 category: "gardening"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The 5 Best Plants for Cool Climates
+# The 5 Best Plants for Cool Climates …
 
 All the plants listed below can be grown in climates as chilly as zone 3. There are a number of beautiful flowers I’ve come across over the years, but many suggested that zone 4 was the furthest north they would grow successfully. This was disheartening when I lived in zone 3! Here are the 5 best plants for cool climates that I recently came across.
 
@@ -36,16 +36,16 @@ Top Photo Credit: [Momma Gadz](https://www.flickr.com/photos/lindagadzinski/4740
 
 ## Related Posts
 
-- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
-- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
-- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
-- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
-- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
 - [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
-- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
+- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
+- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
+- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)
 
