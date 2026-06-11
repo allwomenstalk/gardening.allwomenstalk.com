@@ -3,7 +3,7 @@ title: "5 Cool Woodland Plants ..."
 description: "Hosta; Yellow-Eyed Grass; Cinnamon Fern; Astilbe; Irish Moss; More ..."
 url: "https://gardening.allwomenstalk.com/5-cool-woodland-plants/"
 category: "gardening"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 5 Cool Woodland Plants ...
@@ -36,16 +36,16 @@ Top Photo Credit: [PATierney](https://www.flickr.com/photos/pattietierney/363975
 
 ## Related Posts
 
-- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
 - [5 Plants That Need Shade …](https://gardening.allwomenstalk.com/plants-that-need-shade/)
-- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
 - [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
-- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
 - [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
-- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [5 Common Plant Diseases in Your Garden ...](https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/)
+- [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
+- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
 - [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
+- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
+- [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 

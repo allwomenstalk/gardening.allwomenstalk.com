@@ -3,7 +3,7 @@ title: "5 Great Plants for Homemade Beauty Products ..."
 description: "Cucumbers; Lemon Balm; Spearmint; Roses; Luffas; More ..."
 url: "https://gardening.allwomenstalk.com/5-great-plants-for-homemade-beauty-products/"
 category: "gardening"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 5 Great Plants for Homemade Beauty Products ...
@@ -36,16 +36,16 @@ Top Photo Credit: [jver64](https://www.flickr.com/photos/jver64/2674552957/)
 
 ## Related Posts
 
-- [oiled foot massage](https://allwomenstalk.com/foot-massage/)
-- [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
-- [November Featured Designer - 360 Skin Care](https://allwomenstalk.com/november-featured-designer-360-skin-care/)
-- [REVIEW: Jergen's Natural Glow Face ...](https://allwomenstalk.com/review-jergens-natural-glow-face/)
-- [ivory soap girl](https://lifestyle.allwomenstalk.com/giveaway-contest-ivory-soap/)
 - [renewance](https://allwomenstalk.com/review-renewance-anti-aging-chemical-peel/)
+- [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
+- [ivory soap girl](https://lifestyle.allwomenstalk.com/giveaway-contest-ivory-soap/)
+- [oiled foot massage](https://allwomenstalk.com/foot-massage/)
 - [boscia body wash](https://allwomenstalk.com/review-boscia/)
-- [Natural Winter Skin Care](https://allwomenstalk.com/natural-winter-skin-care-2/)
-- [Have Cleanser, Will Travel ...](https://allwomenstalk.com/have-cleanser-will-travel/)
 - [how long after a tattoo can you take a bubble bath](https://lifestyle.allwomenstalk.com/wonderfully-awesome-fall-bubble-baths/)
+- [REVIEW: Jergen's Natural Glow Face ...](https://allwomenstalk.com/review-jergens-natural-glow-face/)
+- [Have Cleanser, Will Travel ...](https://allwomenstalk.com/have-cleanser-will-travel/)
+- [November Featured Designer - 360 Skin Care](https://allwomenstalk.com/november-featured-designer-360-skin-care/)
+- [Natural Winter Skin Care](https://allwomenstalk.com/natural-winter-skin-care-2/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 - [5 Beauty Products to Own or Try ...](https://allwomenstalk.com/5-beauty-products-to-own-or-try/)
 

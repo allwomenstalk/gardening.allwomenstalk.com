@@ -3,7 +3,7 @@ title: "5 Basic Herbs to Grow ..."
 description: "Lemon Balm; Catnip; Oregano; Thyme; Basil; More ..."
 url: "https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/"
 category: "gardening"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 5 Basic Herbs to Grow ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Joi](https://www.flickr.com/photos/joi/2565214027/)
 
 ## Related Posts
 
-- [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
-- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
-- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
-- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
-- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
-- [5 Tips on Growing Bamboo …](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
-- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
 - [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
-- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [5 Tips on Growing Bamboo …](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
+- [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
+- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
 - [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
+- [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
+- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
+- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
+- [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

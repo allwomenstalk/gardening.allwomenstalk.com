@@ -3,7 +3,7 @@ title: "What Are the Most Popular Styles of Fire Tables for Modern Outdoor Livin
 description: "Most Popular Styles of Fire Tables for Modern Outdoor Living Spaces; Choosing the Right Fire Table for Your Outdoor Space; Conclusion; More ..."
 url: "https://gardening.allwomenstalk.com/fire-tables-styles-modern-outdoor-living-spaces/"
 category: "gardening"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # What Are the Most Popular Styles of Fire Tables for Modern Outdoor Living Spaces Today …

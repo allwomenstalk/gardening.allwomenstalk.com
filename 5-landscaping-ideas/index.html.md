@@ -3,7 +3,7 @@ title: "5 Landscaping Ideas ..."
 description: "Free Trees Are out There; Cheap Flowers Can Be Purchased at the End of the Season; Pick up Rocks along the Road; Choose Plants That Spread on Their Own; Scope out Construction Sites; More ..."
 url: "https://gardening.allwomenstalk.com/5-landscaping-ideas/"
 category: "gardening"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 5 Landscaping Ideas ...
@@ -36,15 +36,15 @@ Top Photo Credit: [SE Asia Images |](https://www.flickr.com/photos/iprahin/38110
 
 ## Related Posts
 
-- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
-- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
-- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
-- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
-- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
 - [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
-- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
+- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
+- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
+- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
+- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
+- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
+- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
 - [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
