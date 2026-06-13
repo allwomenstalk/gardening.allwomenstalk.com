@@ -3,7 +3,7 @@ title: "5 Cool Plants You Have to Have ..."
 description: "Donkey Tail; Resurrection Fern; Hens and Chicks; Surprise Lilies; Bunny Ears; More ..."
 url: "https://gardening.allwomenstalk.com/5-cool-plants-you-have-to-have/"
 category: "gardening"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Cool Plants You Have to Have ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Chris Tsangarides](https://www.flickr.com/photos/christsangar
 
 ## Related Posts
 
-- [caring for a rose bush](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-rose-bush/)
-- [fruit tree planting tips](https://gardening.allwomenstalk.com/5-tips-on-planting-fruit-trees/)
-- [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
-- [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
 - [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
-- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
 - [5 ways to prepare your garden for winter](https://gardening.allwomenstalk.com/5-tips-on-how-to-prepare-your-garden-for-winter/)
-- [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
+- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 - [5 Tips on Growing Squash ...](https://gardening.allwomenstalk.com/5-tips-on-growing-squash/)
+- [fruit tree planting tips](https://gardening.allwomenstalk.com/5-tips-on-planting-fruit-trees/)
+- [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
+- [caring for a rose bush](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-rose-bush/)
+- [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
+- [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 

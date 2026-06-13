@@ -3,7 +3,7 @@ title: "5 Types of Basil for the Garden ..."
 description: "Red Rubin; Mrs. Burns Lemon; Lettuce Leaf; Minette; Large Leaf Italian; More ..."
 url: "https://gardening.allwomenstalk.com/types-of-basil-for-the-garden/"
 category: "gardening"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Types of Basil for the Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [gairid1791](https://www.flickr.com/photos/gairid/4751992655/)
 
 ## Related Posts
 
-- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
-- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
 - [hardy hedges](https://gardening.allwomenstalk.com/kinds-of-hardy-hedges/)
 - [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
-- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
-- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
-- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
-- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
-- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
 - [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
+- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
+- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
+- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
+- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
+- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
+- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
+- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 

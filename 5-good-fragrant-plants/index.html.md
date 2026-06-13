@@ -3,7 +3,7 @@ title: "5 Good Fragrant Plants ..."
 description: "Calla Lilies; Mixed Monarda; Orange Glory Butterfly Plant; Hall’s Honeysuckle; Walk-on-Me; More ..."
 url: "https://gardening.allwomenstalk.com/5-good-fragrant-plants/"
 category: "gardening"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Good Fragrant Plants ...
@@ -37,15 +37,15 @@ Top Photo Credit: [kator29](https://www.flickr.com/photos/kator/2643156440/)
 ## Related Posts
 
 - [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
+- [vegetable garden ideas](https://gardening.allwomenstalk.com/7-vegetable-garden-ideas/)
 - [thin radishes](https://gardening.allwomenstalk.com/5-tips-on-growing-radishes/)
 - [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
-- [tulip tree sap](https://gardening.allwomenstalk.com/5-tips-on-growing-tulip-trees/)
-- [5 Cool Ideas for the Garden ...](https://gardening.allwomenstalk.com/5-cool-ideas-for-the-garden-2/)
-- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
 - [hardy hedges](https://gardening.allwomenstalk.com/kinds-of-hardy-hedges/)
-- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
+- [5 Cool Ideas for the Garden ...](https://gardening.allwomenstalk.com/5-cool-ideas-for-the-garden-2/)
 - [flowering crabtree](https://gardening.allwomenstalk.com/growing-tips-for-a-flowering-crab-tree/)
-- [vegetable garden ideas](https://gardening.allwomenstalk.com/7-vegetable-garden-ideas/)
+- [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
+- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
+- [tulip tree sap](https://gardening.allwomenstalk.com/5-tips-on-growing-tulip-trees/)
 - [5 Relaxing Scents for Meditation ...](https://twilight.allwomenstalk.com/5-relaxing-scents-for-meditation/)
 - [5 Flowers That Will Make Your House Smell Good ...](https://gardening.allwomenstalk.com/5-flowers-that-will-make-your-house-smell-good/)
 

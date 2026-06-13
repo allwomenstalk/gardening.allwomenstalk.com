@@ -3,7 +3,7 @@ title: "8 Extraordinary Gardens of the World ..."
 description: "Lost Gardens of Heligan, UK; Keukenhof, Holland; Giverny, France; Butchart Gardens, Canada; Shalimar Gardens, Pakistan; More ..."
 url: "https://gardening.allwomenstalk.com/extraordinary-gardens-of-the-world/"
 category: "gardening"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 Extraordinary Gardens of the World ...
@@ -46,14 +46,14 @@ Wherever you travel, there's bound to be one or more beautiful gardens there. It
 
 ## Related Posts
 
-- [reasons to visit russia](https://travel.allwomenstalk.com/things-to-love-about-russia/)
-- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
-- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
-- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
 - [list of the most peaceful countries in the world](https://travel.allwomenstalk.com/of-the-worlds-most-peaceful-countries/)
-- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
+- [reasons to visit russia](https://travel.allwomenstalk.com/things-to-love-about-russia/)
 - [chile things](https://travel.allwomenstalk.com/brilliant-things-to-do-in-chile/)
+- [city of dreams hotel price](https://travel.allwomenstalk.com/of-the-most-expensive-hotels-in-the-world/)
 - [country speaks spanish](https://travel.allwomenstalk.com/places-outside-of-spain-where-they-speak-spanish/)
+- [best cities to visit in england besides london](https://travel.allwomenstalk.com/uk-cities-to-visit-besides-london/)
+- [colorful city in the world](https://travel.allwomenstalk.com/wonderfully-colorful-cities/)
+- [portland oregon sights](https://travel.allwomenstalk.com/sights-to-see-in-portland/)
 - [culture in the middle east](https://travel.allwomenstalk.com/great-ways-to-experience-middle-east-culture/)
 - [best places to study abroad in spain](https://travel.allwomenstalk.com/best-places-to-study-abroad/)
 - [8 Amazing Places to See in Australia ...](https://travel.allwomenstalk.com/8-amazing-places-to-see-in-australia/)

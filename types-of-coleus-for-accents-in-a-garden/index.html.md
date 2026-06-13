@@ -3,7 +3,7 @@ title: "5 Types of Coleus for Accents in a Garden ..."
 description: "Versa Green Halo; Tartan; Limelight; Black Dragon; Versa Crimson Gold; More ..."
 url: "https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/"
 category: "gardening"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Types of Coleus for Accents in a Garden ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Lake Fred](https://www.flickr.com/photos/lakefred/3616610999/
 
 ## Related Posts
 
-- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
+- [5 Plants with Unique Flowers …](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
 - [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
-- [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
-- [5 Great Plants for Creating Borders with …](https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/)
+- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
 - [plants for foundation of house](https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/)
-- [5 Tips on Growing Beautiful Daffodils …](https://gardening.allwomenstalk.com/tips-on-growing-beautiful-daffodils/)
+- [5 Great Plants for Creating Borders with …](https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/)
 - [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
 - [5 Tips on Planting Bulbs …](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
-- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
-- [5 Plants with Unique Flowers …](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
+- [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
+- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
+- [5 Tips on Growing Beautiful Daffodils …](https://gardening.allwomenstalk.com/tips-on-growing-beautiful-daffodils/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 
