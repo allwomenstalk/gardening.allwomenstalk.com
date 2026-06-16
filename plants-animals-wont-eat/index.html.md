@@ -3,7 +3,7 @@ title: "5 Plants Animals Won't Eat ..."
 description: "Basket of Gold – Aurinia Saxatalis; Butterfly Weed – Asclepias Tuberosa; Lavender – Lavandula Angustifolia; Russian Sage – Perovskia Atriplicifolia; Thread Leaf Tickseed – Coreopsis Verticillata; More ..."
 url: "https://gardening.allwomenstalk.com/plants-animals-wont-eat/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Plants Animals Won't Eat ...
@@ -36,16 +36,16 @@ Top Photo Credit: [duanekeys](https://www.flickr.com/photos/duanekeys/41310070/)
 
 ## Related Posts
 
-- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
-- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
-- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
-- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
-- [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
-- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
+- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
 - [Adopt a Shelter Dog Month ...](https://allwomenstalk.com/adopt-a-shelter-dog-month/)
 - [Give a Dog a Bone ...](https://allwomenstalk.com/give-a-dog-a-bone/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
+- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
+- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
+- [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
+- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 - [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
 

@@ -3,7 +3,7 @@ title: "5 Tips on Pruning Herbs ..."
 description: "Springtime is Best for Pruning; Watch for Leggy Plants; Cut Back Soft Perennial Herbs; Don’t Worry about Pruning Annual Herbs; Remove Dead or Damaged Branches Often; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Tips on Pruning Herbs ...
@@ -36,16 +36,16 @@ Top Photo Credit: [fermicat](https://www.flickr.com/photos/fermicat/489050799/)
 
 ## Related Posts
 
+- [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
+- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
-- [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
+- [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
+- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
+- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
+- [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [interesting facts about hydroponics](https://gardening.allwomenstalk.com/top-5-reasons-i-like-hydroponics/)
 - [why do we need hydroponics](https://gardening.allwomenstalk.com/5-reasons-you-should-start-a-hydroponic-garden/)
-- [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
-- [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
-- [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
-- [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
-- [boston ivy damage brick](https://gardening.allwomenstalk.com/the-right-type-of-ivy-to-plant-near-your-wall/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

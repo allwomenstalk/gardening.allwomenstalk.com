@@ -3,7 +3,7 @@ title: "5 Holiday Plants ..."
 description: "Thanksgiving Cactus; Oxalis; Poinsettias; Easter Lily; Amaryllis; More ..."
 url: "https://gardening.allwomenstalk.com/5-holiday-plants/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Holiday Plants ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Mats W Lundberg](https://www.flickr.com/photos/matswlundberg/
 
 ## Related Posts
 
+- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
+- [5 Reasons I Love My Garden ...](https://gardening.allwomenstalk.com/5-reasons-i-love-my-garden/)
 - [5 Gardening Ideas ...](https://gardening.allwomenstalk.com/5-gardening-ideas/)
-- [blackberrytree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-blackberry-tree/)
-- [attract birds to garden](https://gardening.allwomenstalk.com/5-things-to-attract-birds-to-the-garden/)
-- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
-- [cool trees to grow](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 edible flowers](https://gardening.allwomenstalk.com/5-edible-flowers/)
+- [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
+- [attract birds to garden](https://gardening.allwomenstalk.com/5-things-to-attract-birds-to-the-garden/)
+- [cool trees to grow](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
-- [5 Reasons I Love My Garden ...](https://gardening.allwomenstalk.com/5-reasons-i-love-my-garden/)
-- [5 Plants to Grow for Medical Help ...](https://gardening.allwomenstalk.com/5-plants-to-grow-for-medical-help/)
+- [blackberrytree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-blackberry-tree/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
 

@@ -3,7 +3,7 @@ title: "5 Tips on Growing Chives ..."
 description: "Choose Your Location; Don’t Plant the Seeds to Deep; Water the Seeds Well; Give Them Lots of Sunshine; Harvest before Flowers Appear; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-growing-chives/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Tips on Growing Chives ...
@@ -38,13 +38,13 @@ Top Photo Credit: [Pat Kilkenny](https://www.flickr.com/photos/11563235@N07/2492
 
 - [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 - [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
-- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
 - [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 - [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
 - [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
-- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)

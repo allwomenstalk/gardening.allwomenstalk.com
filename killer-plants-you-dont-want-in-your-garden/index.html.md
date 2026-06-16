@@ -3,7 +3,7 @@ title: "7 Killer Plants You Don't Want in Your Garden ..."
 description: "Venus Fly Trap; Genlisea; Utricularia Lateriflora; Heliamphora; Sundew Plants; More ..."
 url: "https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Killer Plants You Don't Want in Your Garden ...
@@ -57,15 +57,15 @@ I mentioned that you wouldn’t want these carnivorous plants in your garden but
 ## Related Posts
 
 - [hybrid vegetables](https://food.allwomenstalk.com/fruit-and-veg-hybrids-that-you-need-to-try-this-year/)
+- [blue girl rose bush](https://gardening.allwomenstalk.com/gorgeous-roses-youll-wish-you-could-grow/)
 - [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
+- [beautiful orchids](https://gardening.allwomenstalk.com/gorgeous-orchids-that-show-their-diversity-and-beauty/)
+- [dull flowers](https://gardening.allwomenstalk.com/fields-of-flowers-to-bring-a-little-joy-to-a-dull-day/)
 - [love beautiful butterflies](https://gardening.allwomenstalk.com/beautiful-butterflies-to-spot-in-your-garden-today/)
+- [money flower ideas](https://diy.allwomenstalk.com/fantastic-ways-to-display-fall-flowers/)
+- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
 - [little herb garden](https://food.allwomenstalk.com/great-ideas-for-growing-your-own-herbs-and-using-them/)
 - [100 best gardening hacks and ideas](https://gardening.allwomenstalk.com/gardening-hacks-every-woman-needs-to-know/)
-- [beautiful orchids](https://gardening.allwomenstalk.com/gorgeous-orchids-that-show-their-diversity-and-beauty/)
-- [succulant garden](https://gardening.allwomenstalk.com/outstanding-succulent-gardens-you-can-create-at-home/)
-- [blue girl rose bush](https://gardening.allwomenstalk.com/gorgeous-roses-youll-wish-you-could-grow/)
-- [money flower ideas](https://diy.allwomenstalk.com/fantastic-ways-to-display-fall-flowers/)
-- [dull flowers](https://gardening.allwomenstalk.com/fields-of-flowers-to-bring-a-little-joy-to-a-dull-day/)
 - [5 Plants to Keep Away from Pets ...](https://gardening.allwomenstalk.com/5-plants-to-keep-away-from-pets/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
 

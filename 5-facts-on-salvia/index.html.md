@@ -3,7 +3,7 @@ title: "5 Facts on Salvia You Did Not Know ..."
 description: "Mazatec Shamans Used It to Receive Visions; Salvia Has Healing Properties; This Herb Was Discovered in 1939; Blooms Are Rarely Seen on Salvia Plants; Most Propagation is Performed by Cuttings; More ..."
 url: "https://gardening.allwomenstalk.com/5-facts-on-salvia/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Facts on Salvia You Did Not Know ...
@@ -34,16 +34,16 @@ I thought these facts were rather interesting. Most people talk about the effect
 
 ## Related Posts
 
-- [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
-- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
-- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
-- [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
-- [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
-- [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
-- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
 - [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
+- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
+- [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
+- [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
 - [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
+- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
+- [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
+- [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
+- [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
 - [5 Amazing Gardening Facts ...](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [7 Things You Didn't Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
 

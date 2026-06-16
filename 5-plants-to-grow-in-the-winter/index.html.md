@@ -3,7 +3,7 @@ title: "5 Plants to Grow in the Winter ..."
 description: "Poinsettias; Pansies; Paperwhites; Christmas Cactus; Amaryllis; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Plants to Grow in the Winter ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Klearchos Kapoutsis](https://www.flickr.com/photos/klearchos/
 
 ## Related Posts
 
+- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
 - [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
+- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [how to grow maple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-maple-trees/)
 - [5 Tips on Putting Christmas Lights in Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-putting-christmas-lights-in-your-garden/)
-- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
-- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
-- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
-- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
+- [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
+- [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
+- [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
 - [5 FAQ's on Gardening ...](https://gardening.allwomenstalk.com/5-faqs-on-gardening/)
-- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

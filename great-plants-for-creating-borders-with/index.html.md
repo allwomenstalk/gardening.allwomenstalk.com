@@ -3,7 +3,7 @@ title: "5 Great Plants for Creating Borders with …"
 description: "Fire King Crocosmia; Spectacular Red Carpet Border Lilies; Rainbow Yarrow Mix; Little Blue Wonder Sea Holly; Orange Glory Flower; More ..."
 url: "https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/"
 category: "gardening"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Great Plants for Creating Borders with …
@@ -37,15 +37,15 @@ Top Photo Credit: [vzonabaxter](https://www.flickr.com/photos/vzonabaxter/279487
 ## Related Posts
 
 - [5 Plants with Unique Flowers …](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
-- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
+- [5 Vegetables Kids Can Grow Indoors …](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
 - [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
-- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
+- [5 Plants You Should Plant ...](https://gardening.allwomenstalk.com/5-plants-you-should-plant/)
+- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
+- [how to grow grapefruit tree](https://gardening.allwomenstalk.com/5-tips-on-growing-grapefruit-trees/)
+- [5 Tips on Making a Shade Garden …](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
 - [what fruit trees self pollinate](https://gardening.allwomenstalk.com/fruit-trees-that-dont-require-two-plants-for-pollination/)
 - [plants for foundation of house](https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/)
-- [5 Plants You Should Plant ...](https://gardening.allwomenstalk.com/5-plants-you-should-plant/)
-- [5 Vegetables Kids Can Grow Indoors …](https://gardening.allwomenstalk.com/vegetables-kids-can-grow-indoors/)
-- [5 Great Herbs for Teas ...](https://gardening.allwomenstalk.com/great-herbs-for-teas/)
-- [5 Tips on Making a Shade Garden …](https://gardening.allwomenstalk.com/tips-on-making-a-shade-garden/)
+- [5 Tiny Plants to Fill Small Spaces in Bouquets ...](https://gardening.allwomenstalk.com/tiny-plants-to-fill-small-spaces-in-bouquets/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 
