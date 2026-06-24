@@ -3,7 +3,7 @@ title: "5 Plants That Need Full Sun ..."
 description: "Golden Drop Potentilla; Spirea; Butterfly Bush; Northern Sun Forsythia; Blue Dwarf Lilac; More ..."
 url: "https://gardening.allwomenstalk.com/5-plants-that-need-full-sun/"
 category: "gardening"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 5 Plants That Need Full Sun ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Glenn! of Dundas](https://www.flickr.com/photos/bellemorgan/3
 
 ## Related Posts
 
-- [roses like flowers](https://gardening.allwomenstalk.com/rose-look-alikes-for-your-garden/)
+- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
+- [5 Flowers for an Edible Garden ...](https://gardening.allwomenstalk.com/flowers-for-an-edible-garden/)
 - [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
 - [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
-- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
-- [daylily rust](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilys/)
-- [5 Flowers for an Edible Garden ...](https://gardening.allwomenstalk.com/flowers-for-an-edible-garden/)
 - [9 Tips for Growing Window Box Flowers ...](https://gardening.allwomenstalk.com/tips-for-growing-window-box-flowers/)
-- [5 Basic Herbs to Grow ...](https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/)
-- [5 Tips on Growing Bamboo …](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
 - [cheap gardening supplies](https://gardening.allwomenstalk.com/5-tips-on-having-a-cheap-garden/)
+- [daylily rust](https://gardening.allwomenstalk.com/5-tips-on-growing-daylilys/)
+- [5 Tips on Growing Bamboo …](https://gardening.allwomenstalk.com/tips-on-growing-bamboo/)
+- [roses like flowers](https://gardening.allwomenstalk.com/rose-look-alikes-for-your-garden/)
+- [5 Basic Herbs to Grow ...](https://gardening.allwomenstalk.com/5-basic-herbs-to-grow/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

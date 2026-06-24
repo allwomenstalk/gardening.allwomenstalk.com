@@ -3,7 +3,7 @@ title: "Alternatives to Needing Dirt for Gardening ..."
 description: "Clay Granules; Gelling Powder; White Styrofoam; Sphagnum Moss; Lava Rock; More ..."
 url: "https://gardening.allwomenstalk.com/alternatives-to-needing-dirt-for-gardening/"
 category: "gardening"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Alternatives to Needing Dirt for Gardening ...
@@ -36,16 +36,16 @@ Top Photo Credit: [claycraft](https://www.flickr.com/photos/claycraft/4448561700
 
 ## Related Posts
 
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
 - [Top 6 Cactus Plants to Have ...](https://gardening.allwomenstalk.com/top-6-cactus-plants-to-have/)
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
-- [5 Reasons to Make a Spring Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-spring-garden/)
-- [5 Garden Tips from Me to You ...](https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/)
 - [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [5 Garden Tips from Me to You ...](https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/)
+- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
 - [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
 - [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [5 Reasons to Make a Spring Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-spring-garden/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
 - [Best Plants for Patio Gardening ...](https://gardening.allwomenstalk.com/best-plants-for-patio-gardening/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 

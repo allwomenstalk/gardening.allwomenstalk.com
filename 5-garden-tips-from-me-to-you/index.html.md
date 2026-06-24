@@ -3,7 +3,7 @@ title: "5 Garden Tips from Me to You ..."
 description: "Do Not over Water or under Water; Do They Need a Lot of Sun?; Most Flowers Need Planted during the Spring; When You Are Planting Your Plant; Make Watering More Effective; More ..."
 url: "https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/"
 category: "gardening"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 5 Garden Tips from Me to You ...
@@ -36,16 +36,16 @@ Top Photo Credit: _mariewise_
 
 ## Related Posts
 
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
-- [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
 - [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
-- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
 - [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
+- [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 
