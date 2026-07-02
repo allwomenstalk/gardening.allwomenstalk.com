@@ -3,7 +3,7 @@ title: "7 Oh-so-Pretty Perennials to Plant Right Now ..."
 description: "The Prettiest Peonies; Brilliant Blanket Flowers; Sweet Hollyhocks; Irrepressible Irises; Higher Maintenance Hydrangeas; More ..."
 url: "https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/"
 category: "gardening"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Oh\-so\-Pretty Perennials to Plant Right Now ...
@@ -59,15 +59,15 @@ sunset.com_
 
 ## Related Posts
 
-- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
-- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
-- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
 - [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
 - [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
-- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
 - [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
+- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
+- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
 - [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)

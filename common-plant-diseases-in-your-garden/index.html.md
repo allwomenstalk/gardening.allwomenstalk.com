@@ -3,7 +3,7 @@ title: "5 Common Plant Diseases in Your Garden ..."
 description: "Septoria Leaf Spot on Tomatoes; Early Blight on Potato Plants; Hollyhock Plant Rust; Black Spot on Roses; Powdery Mildew; More ..."
 url: "https://gardening.allwomenstalk.com/common-plant-diseases-in-your-garden/"
 category: "gardening"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 5 Common Plant Diseases in Your Garden ...
@@ -36,15 +36,15 @@ Top Photo Credit: [Thursd@y](https://www.flickr.com/photos/fdaitne/48636252/)
 
 ## Related Posts
 
-- [5 Great Plants for Creating Borders with …](https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/)
+- [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
 - [caring for bleeding hearts](https://gardening.allwomenstalk.com/5-tips-on-caring-for-bleeding-hearts/)
+- [5 Tips on Planting Bulbs …](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
 - [plants for foundation of house](https://gardening.allwomenstalk.com/plants-that-can-damage-your-home/)
-- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
+- [5 Great Plants for Creating Borders with …](https://gardening.allwomenstalk.com/great-plants-for-creating-borders-with/)
 - [aesthetic home garden](https://gardening.allwomenstalk.com/5-tips-for-a-better-home-garden/)
 - [variety of coleus](https://gardening.allwomenstalk.com/types-of-coleus-for-accents-in-a-garden/)
+- [10 Must Have Herbs in the House ...](https://gardening.allwomenstalk.com/10-must-have-herbs-in-the-house/)
 - [5 Tips on Growing Beautiful Daffodils …](https://gardening.allwomenstalk.com/tips-on-growing-beautiful-daffodils/)
-- [heavy equipment wash](https://gardening.allwomenstalk.com/ways-to-prevent-loss-of-topsoil/)
-- [5 Tips on Planting Bulbs …](https://gardening.allwomenstalk.com/tips-on-planting-bulbs/)
 - [5 Plants with Unique Flowers …](https://gardening.allwomenstalk.com/plants-with-unique-flowers/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)

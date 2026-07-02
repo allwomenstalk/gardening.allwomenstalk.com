@@ -3,7 +3,7 @@ title: "5 Delicious Kinds of Berries ..."
 description: "Blackberries; Honeyberries; Sunshine Blue Blueberries; Tayberries; Dewberries; More ..."
 url: "https://gardening.allwomenstalk.com/delicious-kinds-of-berries/"
 category: "gardening"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 5 Delicious Kinds of Berries ...
