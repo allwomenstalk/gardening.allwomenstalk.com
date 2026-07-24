@@ -3,7 +3,7 @@ title: "5 Tips on Caring for Jasmine Bushes ..."
 description: "Pruning; Water; Food; Soil; Sunshine; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/"
 category: "gardening"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 5 Tips on Caring for Jasmine Bushes ...
@@ -36,15 +36,15 @@ Top Photo Credit: [jacquiscloset](https://www.flickr.com/photos/67723735@N00/122
 
 ## Related Posts
 
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
-- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
+- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
 - [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 - [5 Tips on Keeping the Garden Beautiful ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-the-garden-beautiful/)
