@@ -37,15 +37,15 @@ Top Photo Credit: [dubito.ergo.sum](https://www.flickr.com/photos/dubito/3554485
 ## Related Posts
 
 - [5 Tips on Trimming Trees ...](https://gardening.allwomenstalk.com/5-tips-on-trimming-trees/)
-- [5 Tips on Preventing Rose Problems ...](https://gardening.allwomenstalk.com/5-tips-on-preventing-rose-problems/)
 - [5 gallon bucket tomato cage](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)
-- [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
+- [tips for growing rosemary](https://gardening.allwomenstalk.com/5-tips-on-growing-rosemary/)
+- [5 Tips on Preventing Rose Problems ...](https://gardening.allwomenstalk.com/5-tips-on-preventing-rose-problems/)
 - [What about Hydroponics? ...](https://gardening.allwomenstalk.com/what-about-hydroponics/)
 - [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
-- [tips for growing rosemary](https://gardening.allwomenstalk.com/5-tips-on-growing-rosemary/)
+- [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
+- [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [creatures in the garden](https://gardening.allwomenstalk.com/5-animals-you-may-find-in-your-garden/)
 - [cherry tree care and maintenance](https://gardening.allwomenstalk.com/5-tips-on-caring-for-cherry-trees/)
-- [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
 - [5 Tips on Growing Pumpkins ...](https://gardening.allwomenstalk.com/5-tips-on-growing-pumpkins/)
 - [5 Garden Tips on Ficus Trees ...](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 

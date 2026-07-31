@@ -36,16 +36,16 @@ Top Photo Credit: [Andrew @cubagallery](https://www.flickr.com/photos/cubagaller
 
 ## Related Posts
 
-- [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
-- [8 Healthy and Medically Sound Ways to Avoid a Cold...](https://health.allwomenstalk.com/healthy-and-medically-sound-ways-to-avoid-a-cold/)
-- [7 Fun Outdoor Activities to Try This Winter ...](https://health.allwomenstalk.com/fun-outdoor-activities-to-try-this-winter/)
-- [warming hut](https://allwomenstalk.com/the-warming-hut/)
-- [What I Did on My Winter Vacation Day One: Decembe ...](https://allwomenstalk.com/what-i-did-on-my-winter-vacationday-one-decembe-snarkspot/)
-- [Easy Fixes for Winter Hair & Skin](https://allwomenstalk.com/easy-fixes-for-winter-hair-skin/)
-- [Top 8 Myths about Winter Health ...](https://health.allwomenstalk.com/top-8-myths-about-winter-health/)
-- [3 Ways to Prepare for Winter Camping ...](https://lifestyle.allwomenstalk.com/ways-to-prepare-for-winter-camping/)
-- [7 Tips for Kicking Fall Colds ...](https://health.allwomenstalk.com/tips-for-kicking-fall-colds/)
 - [8 Wonderful Ways to Keep Warm in Winter ...](https://health.allwomenstalk.com/wonderful-ways-to-keep-warm-in-winter/)
+- [8 Healthy and Medically Sound Ways to Avoid a Cold...](https://health.allwomenstalk.com/healthy-and-medically-sound-ways-to-avoid-a-cold/)
+- [Easy Fixes for Winter Hair & Skin](https://allwomenstalk.com/easy-fixes-for-winter-hair-skin/)
+- [3 Ways to Prepare for Winter Camping ...](https://lifestyle.allwomenstalk.com/ways-to-prepare-for-winter-camping/)
+- [Top 8 Myths about Winter Health ...](https://health.allwomenstalk.com/top-8-myths-about-winter-health/)
+- [warming hut](https://allwomenstalk.com/the-warming-hut/)
+- [7 Tips for Kicking Fall Colds ...](https://health.allwomenstalk.com/tips-for-kicking-fall-colds/)
+- [What I Did on My Winter Vacation Day One: Decembe ...](https://allwomenstalk.com/what-i-did-on-my-winter-vacationday-one-decembe-snarkspot/)
+- [7 Fun Outdoor Activities to Try This Winter ...](https://health.allwomenstalk.com/fun-outdoor-activities-to-try-this-winter/)
+- [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 - [5 Reasons to Smile about Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-smile-about-your-garden/)
 - [7 Reasons I Am Glad Summer is Ending ...](https://allwomenstalk.com/7-reasons-i-am-glad-summer-is-ending/)
 

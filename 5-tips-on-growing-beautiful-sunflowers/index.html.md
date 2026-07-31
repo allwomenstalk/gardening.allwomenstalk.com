@@ -36,16 +36,16 @@ Top Photo Credit: [Falcon1000](https://www.flickr.com/photos/markozivic/54072790
 
 ## Related Posts
 
-- [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
-- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
-- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
-- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
 - [love sarra art couple](https://gardening.allwomenstalk.com/cool-annuals/)
-- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
 - [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [5 Fast Growing Plants …](https://gardening.allwomenstalk.com/fast-growing-plants/)
-- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [keep dog out of garden](https://gardening.allwomenstalk.com/techniques-for-keeping-your-dog-out-of-the-garden/)
 - [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
+- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
+- [unwanted plants names](https://gardening.allwomenstalk.com/ways-to-get-rid-of-unwanted-plants/)
+- [5 Fast Growing Plants …](https://gardening.allwomenstalk.com/fast-growing-plants/)
+- [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 

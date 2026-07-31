@@ -36,16 +36,16 @@ Top Photo Credit: [duanekeys](https://www.flickr.com/photos/duanekeys/41310070/)
 
 ## Related Posts
 
-- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
-- [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
-- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
-- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
-- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
-- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
+- [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
+- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [Give a Dog a Bone ...](https://allwomenstalk.com/give-a-dog-a-bone/)
+- [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
+- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
 - [Adopt a Shelter Dog Month ...](https://allwomenstalk.com/adopt-a-shelter-dog-month/)
+- [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 - [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
 

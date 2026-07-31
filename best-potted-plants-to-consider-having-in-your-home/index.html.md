@@ -70,15 +70,15 @@ Any other great potted plants for indoors to consider? What are your favorites? 
 
 ## Related Posts
 
-- [edible flowers for champagne](https://cooking.allwomenstalk.com/edible-flowers/)
-- [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
-- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
-- [how to look after phalaenopsis orchids](https://gardening.allwomenstalk.com/tips-for-caring-for-phalaenopsis-orchids/)
-- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
-- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
 - [plants to grow at home balcony](https://gardening.allwomenstalk.com/plants-for-a-very-sunny-balcony/)
-- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
 - [yard bushes](https://gardening.allwomenstalk.com/beautiful-flower-bushes-to-get-for-your-yard/)
+- [edible flowers for champagne](https://cooking.allwomenstalk.com/edible-flowers/)
+- [how to look after phalaenopsis orchids](https://gardening.allwomenstalk.com/tips-for-caring-for-phalaenopsis-orchids/)
+- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
+- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
+- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
+- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
+- [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
 - [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
 - [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 - [5 Plants to Grow in Pots ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)

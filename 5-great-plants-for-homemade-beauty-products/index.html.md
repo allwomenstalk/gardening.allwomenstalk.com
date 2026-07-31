@@ -36,16 +36,16 @@ Top Photo Credit: [jver64](https://www.flickr.com/photos/jver64/2674552957/)
 
 ## Related Posts
 
-- [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
 - [Natural Winter Skin Care](https://allwomenstalk.com/natural-winter-skin-care-2/)
 - [ivory soap girl](https://lifestyle.allwomenstalk.com/giveaway-contest-ivory-soap/)
+- [oiled foot massage](https://allwomenstalk.com/foot-massage/)
+- [renewance](https://allwomenstalk.com/review-renewance-anti-aging-chemical-peel/)
+- [November Featured Designer - 360 Skin Care](https://allwomenstalk.com/november-featured-designer-360-skin-care/)
 - [Have Cleanser, Will Travel ...](https://allwomenstalk.com/have-cleanser-will-travel/)
 - [REVIEW: Jergen's Natural Glow Face ...](https://allwomenstalk.com/review-jergens-natural-glow-face/)
-- [renewance](https://allwomenstalk.com/review-renewance-anti-aging-chemical-peel/)
-- [boscia body wash](https://allwomenstalk.com/review-boscia/)
-- [November Featured Designer - 360 Skin Care](https://allwomenstalk.com/november-featured-designer-360-skin-care/)
-- [oiled foot massage](https://allwomenstalk.com/foot-massage/)
 - [how long after a tattoo can you take a bubble bath](https://lifestyle.allwomenstalk.com/wonderfully-awesome-fall-bubble-baths/)
+- [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
+- [boscia body wash](https://allwomenstalk.com/review-boscia/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 - [5 Beauty Products to Own or Try ...](https://allwomenstalk.com/5-beauty-products-to-own-or-try/)
 

@@ -42,16 +42,16 @@ Another cheerful flower, daisies make a great addition to any garden. Start seed
 
 ## Related Posts
 
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
-- [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
-- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
-- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
 - [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
 - [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
 - [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
+- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
+- [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
+- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

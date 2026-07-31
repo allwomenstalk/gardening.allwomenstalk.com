@@ -36,16 +36,16 @@ Top Photo Credit: [Faded Kodachrome](https://www.flickr.com/photos/benhayes/6269
 
 ## Related Posts
 
-- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
-- [gardening weeding](https://gardening.allwomenstalk.com/5-tips-on-weeding-the-spring-garden/)
-- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
-- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
-- [5 Tips on Growing Ageratum ...](https://gardening.allwomenstalk.com/5-tips-on-growing-ageratum/)
-- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
 - [gardenia care tips](https://gardening.allwomenstalk.com/tips-on-caring-for-a-gardenia-bush/)
 - [5 Must-have Items for Gardening ...](https://gardening.allwomenstalk.com/must-have-items-for-gardening/)
-- [5 Plants That Need Shade …](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [5 Annuals to Add Color to Your Garden ...](https://gardening.allwomenstalk.com/annuals-to-add-color-to-your-garden/)
+- [best fungicide for yucca plant](https://gardening.allwomenstalk.com/tips-on-raising-a-yucca-plant/)
+- [flea repelling plants safe for dogs](https://gardening.allwomenstalk.com/5-plants-that-repel-fleas/)
 - [5 Cool Woodland Plants ...](https://gardening.allwomenstalk.com/5-cool-woodland-plants/)
+- [5 Tips on Growing Ageratum ...](https://gardening.allwomenstalk.com/5-tips-on-growing-ageratum/)
+- [5 Plants That Need Shade …](https://gardening.allwomenstalk.com/plants-that-need-shade/)
+- [5 Great Accent Plants for a Flowerbed ...](https://gardening.allwomenstalk.com/great-accent-plants-for-a-flowerbed/)
+- [gardening weeding](https://gardening.allwomenstalk.com/5-tips-on-weeding-the-spring-garden/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

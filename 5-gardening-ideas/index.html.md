@@ -36,16 +36,16 @@ Top Photo Credit: _quimdoporto_
 
 ## Related Posts
 
+- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
+- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
+- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
 - [5 Cool Fall Plants ...](https://gardening.allwomenstalk.com/5-cool-fall-plants/)
 - [5 Tips on Growing Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/)
-- [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
-- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
-- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [5 Trees for Small Spaces ...](https://gardening.allwomenstalk.com/5-trees-for-small-spaces/)
-- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
+- [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
 - [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
-- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
-- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
+- [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
+- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

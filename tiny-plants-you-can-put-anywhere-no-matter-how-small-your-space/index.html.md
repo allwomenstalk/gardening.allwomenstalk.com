@@ -157,16 +157,16 @@ Do you live in a tiny space? Are you excited to add some plants now that you've 
 
 ## Related Posts
 
-- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
-- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
-- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
 - [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
+- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
+- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
+- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
+- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
 - [fairy garden landscape](https://gardening.allwomenstalk.com/these-fairy-gardens-will-make-your-yard-look-magical-af/)
 - [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
-- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
 - [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
-- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
+- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 

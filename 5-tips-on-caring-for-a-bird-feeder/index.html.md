@@ -36,16 +36,16 @@ Top Photo Credit: [AGreatEuropeTripPlanner!](https://www.flickr.com/photos/great
 
 ## Related Posts
 
-- [7 Tips for Saving Your Eyesight ...](https://health.allwomenstalk.com/7-tips-for-saving-your-eyesight/)
-- [7 Ear Care Tips ...](https://health.allwomenstalk.com/7-ear-care-tips/)
-- [caring for jewelry](https://jewelry.allwomenstalk.com/7-tips-on-caring-for-your-jewelry/)
-- [5 Tips on the Perfect Birdfeeder ...](https://gardening.allwomenstalk.com/5-tips-on-the-perfect-birdfeeder/)
-- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
-- [highlight tips](https://hair.allwomenstalk.com/tips-for-successful-home-highlights/)
-- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
-- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
 - [become a writer](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
+- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
 - [jogging date](https://health.allwomenstalk.com/7-tips-for-a-jogging-date/)
+- [7 Ear Care Tips ...](https://health.allwomenstalk.com/7-ear-care-tips/)
+- [5 Tips on the Perfect Birdfeeder ...](https://gardening.allwomenstalk.com/5-tips-on-the-perfect-birdfeeder/)
+- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
+- [caring for jewelry](https://jewelry.allwomenstalk.com/7-tips-on-caring-for-your-jewelry/)
+- [7 Tips for Saving Your Eyesight ...](https://health.allwomenstalk.com/7-tips-for-saving-your-eyesight/)
+- [highlight tips](https://hair.allwomenstalk.com/tips-for-successful-home-highlights/)
+- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
 - [5 Reasons to Make a Bird Feeder ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-bird-feeder/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

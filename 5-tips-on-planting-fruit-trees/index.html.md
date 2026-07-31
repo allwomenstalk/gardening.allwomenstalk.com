@@ -36,16 +36,16 @@ Top Photo Credit: [Martin LaBar](https://www.flickr.com/photos/martinlabar/70501
 
 ## Related Posts
 
-- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
-- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
 - [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
-- [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
-- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
+- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
+- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
+- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

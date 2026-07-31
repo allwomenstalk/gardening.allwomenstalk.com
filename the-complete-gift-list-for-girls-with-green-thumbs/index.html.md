@@ -174,16 +174,16 @@ See something that will make her smile this year?
 
 ## Related Posts
 
-- [modern unique gifts](https://lifestyle.allwomenstalk.com/no-one-else-will-be-giving-ultra-modern-gifts-like-these-this-year/)
-- [gifts for moms who don't like anything](https://lifestyle.allwomenstalk.com/not-totally-cheesy-gifts-for-mom/)
-- [once in a lifetime experience gifts](https://love.allwomenstalk.com/once-in-a-lifetime-experiences-to-buy-for-your-boyfriend-this-holiday-season/)
-- [jack black thickening shampoo](https://hair.allwomenstalk.com/gifts-for-guys-who-love-their-hair/)
-- [something playful gift ideas](https://lifestyle.allwomenstalk.com/gifts-for-the-playful-people-in-your-life/)
-- [gift for guy you just started dating](https://love.allwomenstalk.com/christmas-gifts-for-the-man-youve-just-started-dating/)
 - [teroforma whisky stones](https://lifestyle.allwomenstalk.com/save-your-christmas-budget-with-these-fabulous-gifts-under-20/)
+- [jack black thickening shampoo](https://hair.allwomenstalk.com/gifts-for-guys-who-love-their-hair/)
+- [modern unique gifts](https://lifestyle.allwomenstalk.com/no-one-else-will-be-giving-ultra-modern-gifts-like-these-this-year/)
+- [gift for guy you just started dating](https://love.allwomenstalk.com/christmas-gifts-for-the-man-youve-just-started-dating/)
 - [sweetest holiday](https://lifestyle.allwomenstalk.com/the-sweetest-things-about-the-holiday-season/)
 - [the christmas song](https://music.allwomenstalk.com/christmas-songs-that-have-true-mistletoe-potential/)
+- [something playful gift ideas](https://lifestyle.allwomenstalk.com/gifts-for-the-playful-people-in-your-life/)
 - [gift for practical person](https://lifestyle.allwomenstalk.com/stellar-gift-ideas-for-the-practical-person-in-your-life/)
+- [gifts for moms who don't like anything](https://lifestyle.allwomenstalk.com/not-totally-cheesy-gifts-for-mom/)
+- [once in a lifetime experience gifts](https://love.allwomenstalk.com/once-in-a-lifetime-experiences-to-buy-for-your-boyfriend-this-holiday-season/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Cool Gardening Magazines ...](https://gardening.allwomenstalk.com/5-cool-gardening-magazines/)
 

@@ -84,16 +84,16 @@ Top Photo Credit: [Pinterest](https://www.pinterest.com/pin/163748136421495180/)
 
 ## Related Posts
 
-- [11 Charming Chevron DIY Projects ...](https://lifestyle.allwomenstalk.com/charming-chevron-diy-projects/)
-- [amazing diy birthday gifts](https://lifestyle.allwomenstalk.com/amazing-diy-birthday-gifts/)
-- [pet craft](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
-- [erful diy ideas and projects](https://lifestyle.allwomenstalk.com/delightful-damask-diy-projects/)
+- [12 Sweet Scallop Style DIY Projects ...](https://fashion.allwomenstalk.com/sweet-scallop-style-diy-projects/)
+- [7 Fantastic DIY's with Your Pictures from Instagra...](https://lifestyle.allwomenstalk.com/fantastic-diys-with-your-pictures-from-instagram/)
 - [12 Easy and Fun DIY Pet Projects ...](https://lifestyle.allwomenstalk.com/easy-and-fun-diy-pet-projects/)
 - [10 Fab and Fun DIY Sunnies ...](https://fashion.allwomenstalk.com/fab-and-fun-diy-sunnies/)
+- [erful diy ideas and projects](https://lifestyle.allwomenstalk.com/delightful-damask-diy-projects/)
 - [geometric accessories](https://jewelry.allwomenstalk.com/gorgeous-diy-geometric-accessories/)
-- [7 Fantastic DIY's with Your Pictures from Instagra...](https://lifestyle.allwomenstalk.com/fantastic-diys-with-your-pictures-from-instagram/)
-- [12 Sweet Scallop Style DIY Projects ...](https://fashion.allwomenstalk.com/sweet-scallop-style-diy-projects/)
 - [7 Fabulous Old T-shirt DIY's ...](https://lifestyle.allwomenstalk.com/fabulous-old-t-shirt-diys/)
+- [pet craft](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
+- [amazing diy birthday gifts](https://lifestyle.allwomenstalk.com/amazing-diy-birthday-gifts/)
+- [11 Charming Chevron DIY Projects ...](https://lifestyle.allwomenstalk.com/charming-chevron-diy-projects/)
 - [9 Adorable Floral Prints ...](https://fashion.allwomenstalk.com/adorable-floral-prints/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

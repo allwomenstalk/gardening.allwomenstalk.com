@@ -36,16 +36,16 @@ Top Photo Credit: _matreshka_
 
 ## Related Posts
 
-- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
-- [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
-- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
 - [beginning gardening tips](https://gardening.allwomenstalk.com/tips-for-beginning-gardeners/)
-- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
-- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
-- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
-- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
 - [5 Types of Basil for the Garden ...](https://gardening.allwomenstalk.com/types-of-basil-for-the-garden/)
+- [weird willies](https://gardening.allwomenstalk.com/8-strangest-plants-ever/)
 - [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
+- [purple viking potatoes days to maturity](https://gardening.allwomenstalk.com/potato-varieties-for-planting-in-a-vegetable-garden/)
+- [5 Tips on Caring for Daisies ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-daisies/)
+- [5 Flowers Perfect for Pressing ...](https://gardening.allwomenstalk.com/flowers-perfect-for-pressing/)
+- [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
+- [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
+- [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

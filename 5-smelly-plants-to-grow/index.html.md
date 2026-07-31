@@ -36,15 +36,15 @@ Top Photo Credit: [ūndeniably ♥ tinå](https://www.flickr.com/photos/undeniab
 
 ## Related Posts
 
-- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
-- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
-- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
-- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
-- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
 - [trimming mulberry tree](https://gardening.allwomenstalk.com/5-tips-on-growing-a-mulberry-tree/)
-- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
 - [5 Gardening Tips You Have to Have ...](https://gardening.allwomenstalk.com/5-gardening-tips-you-have-to-have/)
+- [5 Things to Know about Growing Sweet Potatoes ...](https://gardening.allwomenstalk.com/5-things-to-know-about-growing-sweet-potatoes/)
+- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
+- [5 Landscaping Ideas ...](https://gardening.allwomenstalk.com/5-landscaping-ideas/)
+- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
+- [5 spiders](https://gardening.allwomenstalk.com/5-spiders-you-may-find-in-your-garden/)
+- [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
+- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)

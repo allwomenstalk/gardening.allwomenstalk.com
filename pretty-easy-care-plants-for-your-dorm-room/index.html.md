@@ -44,16 +44,16 @@ This is a great little plant to keep on your desk to make things look more homel
 
 ## Related Posts
 
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
-- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
-- [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
 - [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
 - [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
+- [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
+- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 

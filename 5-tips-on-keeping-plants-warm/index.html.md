@@ -36,16 +36,16 @@ Top Photo Credit: [Chrisser](https://www.flickr.com/photos/chrisser/2516067553/)
 
 ## Related Posts
 
-- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
 - [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
-- [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
-- [backyard gardening tips](https://gardening.allwomenstalk.com/5-tips-on-backyard-gardening/)
-- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
+- [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
 - [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
+- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
 - [5 Tips on Caring for Your Garden during the Cold ....](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-garden-during-the-cold/)
 - [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
-- [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
 - [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
+- [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
+- [backyard gardening tips](https://gardening.allwomenstalk.com/5-tips-on-backyard-gardening/)
 - [How to Keep Your Plants Warm during the Winter ...](https://gardening.allwomenstalk.com/how-to-keep-your-plants-warm-during-the-winter/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

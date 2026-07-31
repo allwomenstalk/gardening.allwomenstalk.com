@@ -36,16 +36,16 @@ Top Photo Credit: _*spudballoo*_
 
 ## Related Posts
 
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
-- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
-- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
 - [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
 - [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
+- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
 - [5 Ways to Keep a Werewolf out of Your Garden ...](https://twilight.allwomenstalk.com/5-ways-to-keep-a-werewolf-out-of-your-garden/)
 - [5 Secrets to Getting Rid of Bugs Who Eat Your Plan...](https://gardening.allwomenstalk.com/5-secrets-to-getting-rid-of-bugs-who-eat-your-plants/)
 

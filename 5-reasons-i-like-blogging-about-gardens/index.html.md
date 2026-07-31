@@ -36,16 +36,16 @@ Top Photo Credit: [rkramer62](https://www.flickr.com/photos/rkramer62/5376378680
 
 ## Related Posts
 
-- [7 of My Favorite Gardening Blogs ...](https://gardening.allwomenstalk.com/7-of-my-favorite-gardening-blogs/)
-- [Bay Area Blogger of the Week # 35 ...](https://allwomenstalk.com/bay-area-blogger-of-the-week-35/)
-- [type 2 diabetes blogs](https://health.allwomenstalk.com/incredibly-amazing-diabetes-blogs/)
-- [Bay Area Blog of the Week # 32](https://allwomenstalk.com/bay-area-blog-of-the-week-32/)
-- [blogger relationships](https://lifestyle.allwomenstalk.com/best-relationship-advice-blogs/)
-- [dwight stroller gif](https://allwomenstalk.com/dwight-schrute-of-the-office-has-a-weblog-my/)
-- [Bay Area Blog of the Week # 33](https://allwomenstalk.com/bay-area-blog-of-the-week-33/)
-- [My Blog, My Fri-enemy ...](https://allwomenstalk.com/my-blog-my-fri-enemy/)
 - [8 Amazingly Charming Craft Blogs to Stalk ...](https://lifestyle.allwomenstalk.com/amazingly-charming-craft-blogs-to-stalk/)
+- [type 2 diabetes blogs](https://health.allwomenstalk.com/incredibly-amazing-diabetes-blogs/)
+- [My Blog, My Fri-enemy ...](https://allwomenstalk.com/my-blog-my-fri-enemy/)
+- [Bay Area Blog of the Week # 33](https://allwomenstalk.com/bay-area-blog-of-the-week-33/)
+- [Bay Area Blogger of the Week # 35 ...](https://allwomenstalk.com/bay-area-blogger-of-the-week-35/)
+- [blogger relationships](https://lifestyle.allwomenstalk.com/best-relationship-advice-blogs/)
+- [7 of My Favorite Gardening Blogs ...](https://gardening.allwomenstalk.com/7-of-my-favorite-gardening-blogs/)
+- [dwight stroller gif](https://allwomenstalk.com/dwight-schrute-of-the-office-has-a-weblog-my/)
 - [tumblrs](https://lifestyle.allwomenstalk.com/best-tumblrs-to-check-out/)
+- [Bay Area Blog of the Week # 32](https://allwomenstalk.com/bay-area-blog-of-the-week-32/)
 - [5 Reasons I like Gardening Magazines ...](https://gardening.allwomenstalk.com/5-reasons-i-like-gardening-magazines/)
 - [5 Reasons to Read Garden Magazines ...](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: [epSos.de](https://web.archive.org/web/https://www.flickr.com/
 
 ## Related Posts
 
-- [angel trumpet plant care](https://gardening.allwomenstalk.com/5-tips-on-growing-angels-trumpet/)
-- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
-- [5 Nice Perennial Plants ...](https://gardening.allwomenstalk.com/5-nice-perennial-plants/)
 - [The 5 Best Flowers for Dried Arrangements …](https://gardening.allwomenstalk.com/the-best-flowers-for-dried-arrangements/)
+- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
+- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
+- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
+- [green onion landscaping](https://gardening.allwomenstalk.com/types-of-onions-to-grow/)
+- [angel trumpet plant care](https://gardening.allwomenstalk.com/5-tips-on-growing-angels-trumpet/)
+- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
 - [5 Tips on Growing Blueberries ...](https://gardening.allwomenstalk.com/tips-on-growing-blueberries-2/)
 - [7 Things You Must Have in a Garden ...](https://gardening.allwomenstalk.com/7-things-you-must-have-in-a-garden/)
-- [do hummingbirds like rhododendrons](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
-- [what flowers do monarchs like](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-butterflies/)
-- [5 Watering Tips for the Garden ...](https://gardening.allwomenstalk.com/watering-tips-for-the-garden/)
-- [summer garden ideas](https://gardening.allwomenstalk.com/ideas-for-a-summer-garden/)
+- [5 Nice Perennial Plants ...](https://gardening.allwomenstalk.com/5-nice-perennial-plants/)
 - [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
 - [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: [chris .p](https://www.flickr.com/photos/8744268@N08/529734635
 
 ## Related Posts
 
+- [orange mallow](https://gardening.allwomenstalk.com/5-tips-on-growing-rose-mallow/)
 - [can you overwater hydrangeas](https://gardening.allwomenstalk.com/5-tips-on-growing-hydrangeas/)
 - [how to entice your husband](https://gardening.allwomenstalk.com/5-tips-on-getting-your-husband-to-garden-with-you/)
-- [5 of My Favorite Trees ...](https://gardening.allwomenstalk.com/5-of-my-favorite-trees/)
-- [orange mallow](https://gardening.allwomenstalk.com/5-tips-on-growing-rose-mallow/)
-- [weeding a garden](https://gardening.allwomenstalk.com/5-tips-on-weeding-a-garden/)
 - [5 Fun Ideas for Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-fun-ideas-for-growing-tomatoes/)
-- [5 Reasons to Love Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-love-your-garden/)
-- [why do people like gardening](https://gardening.allwomenstalk.com/8-reasons-i-love-gardening/)
 - [7 Interesting Ways to Keep Your Garden Insect Free...](https://gardening.allwomenstalk.com/7-interesting-ways-to-keep-your-garden-insect-free/)
+- [weeding a garden](https://gardening.allwomenstalk.com/5-tips-on-weeding-a-garden/)
+- [why do people like gardening](https://gardening.allwomenstalk.com/8-reasons-i-love-gardening/)
+- [5 of My Favorite Trees ...](https://gardening.allwomenstalk.com/5-of-my-favorite-trees/)
 - [great garden goods](https://gardening.allwomenstalk.com/8-gorgeous-garden-goods/)
+- [5 Reasons to Love Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-love-your-garden/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

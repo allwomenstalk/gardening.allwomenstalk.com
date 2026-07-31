@@ -36,16 +36,16 @@ Top Photo Credit: [cawarfel](https://www.flickr.com/photos/cawarfel/5066522498/)
 
 ## Related Posts
 
-- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
-- [5 Tips on Relaxing in the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-relaxing-in-the-garden/)
 - [What about Hydroponics? ...](https://gardening.allwomenstalk.com/what-about-hydroponics/)
-- [cherry tree care and maintenance](https://gardening.allwomenstalk.com/5-tips-on-caring-for-cherry-trees/)
-- [7 Gardening Blogs You Must Read ...](https://gardening.allwomenstalk.com/7-gardening-blogs-you-must-read/)
+- [5 Tips on Relaxing in the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-relaxing-in-the-garden/)
+- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 - [5 Tips on Growing Garlic ...](https://gardening.allwomenstalk.com/5-tips-on-growing-garlic/)
-- [5 Tips on Growing Corn ...](https://gardening.allwomenstalk.com/5-tips-on-growing-corn/)
 - [creatures in the garden](https://gardening.allwomenstalk.com/5-animals-you-may-find-in-your-garden/)
 - [gardening laws](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
-- [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
+- [5 Tips on Growing Corn ...](https://gardening.allwomenstalk.com/5-tips-on-growing-corn/)
+- [7 Gardening Blogs You Must Read ...](https://gardening.allwomenstalk.com/7-gardening-blogs-you-must-read/)
+- [cherry tree care and maintenance](https://gardening.allwomenstalk.com/5-tips-on-caring-for-cherry-trees/)
+- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
 - [5 Fantastic Potted Plant Wedding Ideas ...](https://wedding.allwomenstalk.com/5-fantastic-potted-plant-wedding-ideas/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 

@@ -36,15 +36,15 @@ Top Photo Credit: _mariewise_
 
 ## Related Posts
 
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
 - [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
-- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
 - [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
+- [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
+- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
 - [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)

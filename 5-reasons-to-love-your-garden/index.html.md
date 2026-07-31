@@ -36,16 +36,16 @@ Top Photo Credit: [*iskandar](https://www.flickr.com/photos/sophomoremoira/36409
 
 ## Related Posts
 
-- [why do people like gardening](https://gardening.allwomenstalk.com/8-reasons-i-love-gardening/)
-- [polar night plant](https://gardening.allwomenstalk.com/5-of-my-favorite-plants-from-a-gardening-magazine/)
-- [7 Interesting Ways to Keep Your Garden Insect Free...](https://gardening.allwomenstalk.com/7-interesting-ways-to-keep-your-garden-insect-free/)
 - [5 Fun Ideas for Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-fun-ideas-for-growing-tomatoes/)
-- [great garden goods](https://gardening.allwomenstalk.com/8-gorgeous-garden-goods/)
-- [5 of My Favorite Trees ...](https://gardening.allwomenstalk.com/5-of-my-favorite-trees/)
-- [weeding a garden](https://gardening.allwomenstalk.com/5-tips-on-weeding-a-garden/)
-- [pretty backyard gardens](https://gardening.allwomenstalk.com/5-reasons-to-have-a-backyard-garden/)
-- [5 Reasons to Smile about Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-smile-about-your-garden/)
 - [can you overwater hydrangeas](https://gardening.allwomenstalk.com/5-tips-on-growing-hydrangeas/)
+- [polar night plant](https://gardening.allwomenstalk.com/5-of-my-favorite-plants-from-a-gardening-magazine/)
+- [weeding a garden](https://gardening.allwomenstalk.com/5-tips-on-weeding-a-garden/)
+- [great garden goods](https://gardening.allwomenstalk.com/8-gorgeous-garden-goods/)
+- [5 Reasons to Smile about Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-smile-about-your-garden/)
+- [pretty backyard gardens](https://gardening.allwomenstalk.com/5-reasons-to-have-a-backyard-garden/)
+- [7 Interesting Ways to Keep Your Garden Insect Free...](https://gardening.allwomenstalk.com/7-interesting-ways-to-keep-your-garden-insect-free/)
+- [5 of My Favorite Trees ...](https://gardening.allwomenstalk.com/5-of-my-favorite-trees/)
+- [why do people like gardening](https://gardening.allwomenstalk.com/8-reasons-i-love-gardening/)
 - [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 

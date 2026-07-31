@@ -44,16 +44,16 @@ Top Photo Credit: [William Dalton](https://www.flickr.com/photos/bovinacowboy/10
 
 ## Related Posts
 
-- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
-- [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
+- [do rabbits eat tickseed](https://gardening.allwomenstalk.com/plants-animals-wont-eat/)
 - [doggles k9 optix](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
-- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [7 Health Benefits of a Pet ...](https://health.allwomenstalk.com/7-health-benefits-of-a-pet/)
+- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [Bird Flu: a World Wide Threat ...](https://allwomenstalk.com/bird-flu-a-world-wide-threat/)
 - [tavi baddie](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
 - [dogs deserve better](https://allwomenstalk.com/dogs-deserve-better-and-so-do-people-i-think/)
-- [do rabbits eat tickseed](https://gardening.allwomenstalk.com/plants-animals-wont-eat/)
+- [Dog's Best Friend ...](https://allwomenstalk.com/dogs-best-friend/)
 - [how to choose a pet sitter](https://lifestyle.allwomenstalk.com/tips-for-choosing-a-pet-sitter/)
-- [chatty cat breeds](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
+- [adorable dog costumes](https://lifestyle.allwomenstalk.com/charmingly-cute-costumes-for-your-adorable-dog/)
 - [7 Cute Yet Unusual Animals ...](https://allwomenstalk.com/7-cute-yet-unusual-animals/)
 - [7 Great Animal Charities ...](https://allwomenstalk.com/7-great-animal-charities/)
 

@@ -180,16 +180,16 @@ What herbs will you be growing this spring?
 
 ## Related Posts
 
-- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
-- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
-- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
-- [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
 - [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
 - [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
 - [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
 - [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
+- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
+- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

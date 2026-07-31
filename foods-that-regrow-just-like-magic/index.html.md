@@ -64,16 +64,16 @@ It's amazing just how much you can grow from the leftover bits of vegetables tha
 
 ## Related Posts
 
-- [Wonderful Reasons to Garden 🥀 if You Want to Impr...](https://gardening.allwomenstalk.com/treat-your-mind-body-and-soul-with-some-gardening/)
+- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
 - [Don't Wait until Next Season to Plant These Garden...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
-- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
+- [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
+- [21 Herbs You Should Start ⏳Growing on Your Windows...](https://gardening.allwomenstalk.com/herbs-you-should-start-growing-on-your-windowsill/)
 - [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
 - [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
-- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
+- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
 - [guardiola flower](https://gardening.allwomenstalk.com/bulbs-you-can-plant-now-for-blooms-next-spring/)
-- [21 Herbs You Should Start ⏳Growing on Your Windows...](https://gardening.allwomenstalk.com/herbs-you-should-start-growing-on-your-windowsill/)
-- [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [Wonderful Reasons to Garden 🥀 if You Want to Impr...](https://gardening.allwomenstalk.com/treat-your-mind-body-and-soul-with-some-gardening/)
 - [6 Herbs You Can Grow in Your Kitchen Garden ...](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [7 Superfoods to Add to Your Diet ...](https://allwomenstalk.com/superfoods-to-add-to-your-diet/)
 

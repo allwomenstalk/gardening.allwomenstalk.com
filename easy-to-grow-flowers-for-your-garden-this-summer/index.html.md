@@ -56,16 +56,16 @@ What’s your favorite outdoor flower? Do you grow it in your yard?
 
 ## Related Posts
 
+- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
 - [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
+- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
+- [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
 - [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
 - [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
-- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
 - [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
-- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
-- [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
-- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
 - [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
-- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
+- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 

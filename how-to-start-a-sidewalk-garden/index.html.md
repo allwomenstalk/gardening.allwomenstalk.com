@@ -33,14 +33,14 @@ Before you plant anything, remember to make sure that you plant sun-seeking grou
 ## Related Posts
 
 - [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
 - [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
-- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
 - [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
 - [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
 - [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)

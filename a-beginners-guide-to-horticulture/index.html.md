@@ -44,15 +44,15 @@ If you want to start gardening like a pro and support local food movements, you 
 
 ## Related Posts
 
-- [7 Tips for Caring for Houseplants ...](https://allwomenstalk.com/7-tips-for-caring-for-houseplants/)
-- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
-- [10 Flowers to Plant This Spring ...](https://allwomenstalk.com/10-flowers-to-plant-this-spring/)
-- [7 Easy Plants to Grow ...](https://allwomenstalk.com/7-easy-plants-to-grow/)
-- [10 Tips on Growing Great Plants This Summer ...](https://allwomenstalk.com/10-tips-on-growing-great-plants-this-summer/)
-- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
 - [Yes, You Can Grow Your Own Herbs ...](https://allwomenstalk.com/grow-your-own-herbs/)
+- [Flowers 101: Calla Lily ...](https://allwomenstalk.com/flowers-101-calla-lily/)
+- [7 Easy Plants to Grow ...](https://allwomenstalk.com/7-easy-plants-to-grow/)
+- [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
+- [7 Tips for Caring for Houseplants ...](https://allwomenstalk.com/7-tips-for-caring-for-houseplants/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
+- [10 Tips on Growing Great Plants This Summer ...](https://allwomenstalk.com/10-tips-on-growing-great-plants-this-summer/)
 - [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
+- [10 Flowers to Plant This Spring ...](https://allwomenstalk.com/10-flowers-to-plant-this-spring/)
 - [5 Floral Items to Have...](https://allwomenstalk.com/5-floral-items-to-have/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)

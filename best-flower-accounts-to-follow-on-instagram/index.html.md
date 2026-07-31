@@ -80,16 +80,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fave flowe
 
 ## Related Posts
 
-- [flower inspo](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-3/)
-- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
-- [dazzling nails](https://nails.allwomenstalk.com/of-todays-dazzling-nail-inspo-for-girls-desperate-for-a-new-look/)
-- [julia berolzheimer weight loss](https://fashion.allwomenstalk.com/best-ootd-accounts-on-instagram/)
-- [bad inspo](https://inspiration.allwomenstalk.com/of-todays-compelling-daily-inspo-for-girls-having-a-bad-day/)
-- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
-- [ootd rock](https://fashion.allwomenstalk.com/of-todays-drool-worthy-ootd-photos-for-girls-who-want-to-rock-the-ootd/)
+- [pink and white nails inspo](https://nails.allwomenstalk.com/of-todays-crave-worthy-nail-inspo-for-girls-desperate-for-a-new-look/)
 - [nail inspi](https://nails.allwomenstalk.com/of-todays-reliable-nail-inspo-every-woman-needs-right-now/)
 - [ootd inspo](https://fashion.allwomenstalk.com/of-todays-delightful-ootd-inspo-for-girls-who-love-standing-out/)
-- [pink and white nails inspo](https://nails.allwomenstalk.com/of-todays-crave-worthy-nail-inspo-for-girls-desperate-for-a-new-look/)
+- [dazzling nails](https://nails.allwomenstalk.com/of-todays-dazzling-nail-inspo-for-girls-desperate-for-a-new-look/)
+- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
+- [flower inspo](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-3/)
+- [julia berolzheimer weight loss](https://fashion.allwomenstalk.com/best-ootd-accounts-on-instagram/)
+- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
+- [bad inspo](https://inspiration.allwomenstalk.com/of-todays-compelling-daily-inspo-for-girls-having-a-bad-day/)
+- [ootd rock](https://fashion.allwomenstalk.com/of-todays-drool-worthy-ootd-photos-for-girls-who-want-to-rock-the-ootd/)
 - [37 of Today's Captivating Flowers Inspo to Brighte...](https://gardening.allwomenstalk.com/of-todays-captivating-flowers-inspo-to-brighten-every-girls-day/)
 - [32 of Today's Reliable Flowers Inspo to Brighten E...](https://gardening.allwomenstalk.com/of-todays-reliable-flowers-inspo-to-brighten-every-girls-day/)
 

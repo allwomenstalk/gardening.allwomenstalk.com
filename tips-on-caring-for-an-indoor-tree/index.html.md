@@ -36,16 +36,16 @@ Top Photo Credit: [Christie B](https://www.flickr.com/photos/cbahlai/365291323/)
 
 ## Related Posts
 
-- [5 of My Favorite Plants ...](https://gardening.allwomenstalk.com/5-of-my-favorite-plants/)
-- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
+- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
+- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
+- [5 Ways Gardening Relieves Stress ...](https://gardening.allwomenstalk.com/ways-gardening-relieves-stress/)
 - [best pitch fork for mulch](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-mulch/)
 - [5 Gorgeous Annual Plants …](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
-- [5 Ways Gardening Relieves Stress ...](https://gardening.allwomenstalk.com/ways-gardening-relieves-stress/)
-- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
-- [5 Tips on Organic Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-organic-gardening/)
-- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
 - [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
+- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
+- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
 - [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
+- [5 of My Favorite Plants ...](https://gardening.allwomenstalk.com/5-of-my-favorite-plants/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 - [5 Tips on Caring for a Mimosa Tree ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 

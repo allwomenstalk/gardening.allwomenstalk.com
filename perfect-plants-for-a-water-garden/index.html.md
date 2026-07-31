@@ -56,16 +56,16 @@ When creating your own water garden, do make sure that you check your local quar
 
 ## Related Posts
 
-- [things for compost](https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/)
 - [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
 - [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
-- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
+- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
 - [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
 - [plants at office desk](https://gardening.allwomenstalk.com/indoor-plants-ideal-for-your-desk-or-office/)
 - [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
 - [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
+- [things for compost](https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/)
+- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
 - [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
 - [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 

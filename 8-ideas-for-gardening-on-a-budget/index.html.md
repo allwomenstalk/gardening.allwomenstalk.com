@@ -48,16 +48,16 @@ Top Photo Credit: [JannaPham](https://www.flickr.com/photos/jannapham/3463143898
 
 ## Related Posts
 
-- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
-- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
-- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
-- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
-- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
-- [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
-- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
 - [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
+- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
+- [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
 - [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
+- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
+- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
+- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
+- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 - [5 Tips on Backyard Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-backyard-gardening/)
 

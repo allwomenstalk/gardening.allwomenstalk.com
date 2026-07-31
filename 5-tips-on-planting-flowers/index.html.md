@@ -36,16 +36,16 @@ Top Photo Credit: [Bryan Zmijewski](https://www.flickr.com/photos/bryanz/3436408
 
 ## Related Posts
 
-- [5 Tips on Preventing Rose Problems ...](https://gardening.allwomenstalk.com/5-tips-on-preventing-rose-problems/)
 - [tips for growing rosemary](https://gardening.allwomenstalk.com/5-tips-on-growing-rosemary/)
-- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
+- [plants with purple flowers](https://gardening.allwomenstalk.com/5-plants-with-purple-flowers/)
+- [5 gallon bucket tomato cage](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)
 - [5 Tips on Growing a Christmas Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-a-christmas-cactus/)
 - [loreal paris le stylo garde](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
-- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
-- [plants with purple flowers](https://gardening.allwomenstalk.com/5-plants-with-purple-flowers/)
-- [5 Tips on Trimming Trees ...](https://gardening.allwomenstalk.com/5-tips-on-trimming-trees/)
-- [5 gallon bucket tomato cage](https://gardening.allwomenstalk.com/5-plants-to-grow-in-pots/)
+- [5 Tips on Preventing Rose Problems ...](https://gardening.allwomenstalk.com/5-tips-on-preventing-rose-problems/)
 - [5 Reasons to Grow Your Own Vegetables ...](https://gardening.allwomenstalk.com/5-reasons-to-grow-your-own-vegetables/)
+- [lawn care tips](https://gardening.allwomenstalk.com/8-essential-lawn-care-tips/)
+- [5 Tips on Trimming Trees ...](https://gardening.allwomenstalk.com/5-tips-on-trimming-trees/)
+- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
 - [5 Rules to Planting Spring Plants ...](https://gardening.allwomenstalk.com/5-rules-to-planting-spring-plants/)
 - [5 Tips on Keeping the Garden Beautiful ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-the-garden-beautiful/)
 

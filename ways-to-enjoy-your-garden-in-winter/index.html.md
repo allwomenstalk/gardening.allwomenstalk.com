@@ -56,16 +56,16 @@ Winter can seem a dull time of year for your garden, but with the right choice o
 
 ## Related Posts
 
-- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
-- [chris mazder](https://celebs.allwomenstalk.com/athletes-you-cannot-miss-during-the-winter-olympics/)
+- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
 - [ready for spring](https://inspiration.allwomenstalk.com/things-to-do-to-get-yourself-ready-for-spring/)
-- [why i love cold weather](https://lifestyle.allwomenstalk.com/reasons-to-adore-winter-weather/)
-- [blue lagoon ekero](https://travel.allwomenstalk.com/winter-wonderlands-you-dont-want-to-miss/)
 - [fall squash varieties](https://food.allwomenstalk.com/different-varieties-of-winter-squash-you-have-to-try-this-fall/)
 - [trees strongest in autumn](https://inspiration.allwomenstalk.com/fall-trees-to-get-you-in-the-mood-for-the-season/)
-- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
+- [blue lagoon ekero](https://travel.allwomenstalk.com/winter-wonderlands-you-dont-want-to-miss/)
 - [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
-- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
+- [warmly dressed](https://fashion.allwomenstalk.com/super-simple-tips-to-dress-warmly-this-winter/)
+- [how to get rid of static in house during winter](https://lifestyle.allwomenstalk.com/ways-to-deal-with-winter-static-in-your-home/)
+- [why i love cold weather](https://lifestyle.allwomenstalk.com/reasons-to-adore-winter-weather/)
+- [chris mazder](https://celebs.allwomenstalk.com/athletes-you-cannot-miss-during-the-winter-olympics/)
 - [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
 - [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
 

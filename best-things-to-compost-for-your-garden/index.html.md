@@ -68,16 +68,16 @@ Some of the worst things to compost include cooking oil, walnuts, dead plants, a
 
 ## Related Posts
 
-- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
 - [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
-- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
-- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
-- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
-- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
-- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
 - [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
+- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
+- [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
+- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
+- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
+- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
+- [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
+- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 

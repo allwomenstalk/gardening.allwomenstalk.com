@@ -35,15 +35,15 @@ Please feel free to share any additional gardening tips other city dwellers migh
 ## Related Posts
 
 - [flower planting tips](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
+- [22 Tips for Creating Flawless Flower Arrangements ...](https://gardening.allwomenstalk.com/flower-arrangements-home/)
 - [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
-- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
-- [plants with purple flowers](https://gardening.allwomenstalk.com/5-plants-with-purple-flowers/)
-- [michele tremblay](https://wedding.allwomenstalk.com/guest-blogger-michele-tremblay-flower-expert/)
-- [how to get rid of werewolf in garden](https://twilight.allwomenstalk.com/5-ways-to-keep-a-werewolf-out-of-your-garden/)
 - [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
 - [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
-- [22 Tips for Creating Flawless Flower Arrangements ...](https://gardening.allwomenstalk.com/flower-arrangements-home/)
+- [michele tremblay](https://wedding.allwomenstalk.com/guest-blogger-michele-tremblay-flower-expert/)
 - [5 Reasons to Grow Your Own Vegetables ...](https://gardening.allwomenstalk.com/5-reasons-to-grow-your-own-vegetables/)
+- [5 Tips on Growing Cactus ...](https://gardening.allwomenstalk.com/5-tips-on-growing-cactus/)
+- [how to get rid of werewolf in garden](https://twilight.allwomenstalk.com/5-ways-to-keep-a-werewolf-out-of-your-garden/)
+- [plants with purple flowers](https://gardening.allwomenstalk.com/5-plants-with-purple-flowers/)
 - [5 Tips on Gardening in the City ...](https://gardening.allwomenstalk.com/5-tips-on-gardening-in-the-city/)
 - [Tips on Having a Garden in Small Places ...](https://gardening.allwomenstalk.com/tips-on-having-a-garden-in-small-places/)
 

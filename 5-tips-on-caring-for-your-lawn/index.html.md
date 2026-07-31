@@ -36,16 +36,16 @@ Top Photo Credit: [SteveSJ76](https://www.flickr.com/photos/55953007@N00/4348816
 
 ## Related Posts
 
-- [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
-- [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
 - [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
-- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
-- [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
-- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
 - [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
-- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
 - [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
 - [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
+- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
+- [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
+- [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
+- [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
+- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

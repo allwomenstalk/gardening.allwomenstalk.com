@@ -98,16 +98,16 @@ Which garden is your favorite? What will you be planting in your yard this year?
 
 ## Related Posts
 
+- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
+- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
 - [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
-- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
 - [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
 - [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
 - [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
-- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
-- [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
-- [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
 - [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
 
