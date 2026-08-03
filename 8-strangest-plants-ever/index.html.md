@@ -3,7 +3,7 @@ title: "8 Strangest Plants Ever ..."
 description: "Amorphophallus Titanum: the Corpse Flower; Amorphophallus: Misshapen Penis Plant; Rafflesia Arnoldii: Corpse Plant; Codariocalyx Motorius: Dancing Grass; Mimosa Pudica: the Shy Plant; More ..."
 url: "https://gardening.allwomenstalk.com/8-strangest-plants-ever/"
 category: "gardening"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 8 Strangest Plants Ever ...
@@ -48,14 +48,14 @@ Top Photo Credit: [Paul J. Morris](https://www.flickr.com/photos/aa3sd/478678039
 
 ## Related Posts
 
-- [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
-- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
+- [hardy hedges](https://gardening.allwomenstalk.com/kinds-of-hardy-hedges/)
 - [tulip tree sap](https://gardening.allwomenstalk.com/5-tips-on-growing-tulip-trees/)
+- [5 Tips on Growing Snapdragons ...](https://gardening.allwomenstalk.com/tips-on-growing-snapdragons/)
 - [5 Trees Perfect for Container Gardens ...](https://gardening.allwomenstalk.com/trees-perfect-for-container-gardens/)
 - [what are the easiest wildflowers to grow](https://gardening.allwomenstalk.com/wildflowers-that-are-easy-to-grow/)
+- [5 Reminders on Preparing the Garden for Spring ...](https://gardening.allwomenstalk.com/5-reminders-on-preparing-the-garden-for-spring/)
 - [vegetable garden ideas](https://gardening.allwomenstalk.com/7-vegetable-garden-ideas/)
 - [thin radishes](https://gardening.allwomenstalk.com/5-tips-on-growing-radishes/)
-- [hardy hedges](https://gardening.allwomenstalk.com/kinds-of-hardy-hedges/)
 - [5 Good Fragrant Plants ...](https://gardening.allwomenstalk.com/5-good-fragrant-plants/)
 - [7 Tips on Growing Watermelons ...](https://gardening.allwomenstalk.com/7-tips-on-growing-watermelons/)
 - [5 Poisonous Plants ...](https://gardening.allwomenstalk.com/5-poisonous-plants/)
