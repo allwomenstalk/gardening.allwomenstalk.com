@@ -3,7 +3,7 @@ title: "5 Versatile Ways to Use Fresh Basil"
 description: "A Natural Anti-Inflammatory; Aid for Digestion; Elevating Everyday Meals; The Perfect Homemade Pesto; A Simple, Energizing Tea; More ..."
 url: "https://gardening.allwomenstalk.com/great-uses-for-basil/"
 category: "gardening"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 5 Versatile Ways to Use Fresh Basil
@@ -32,16 +32,16 @@ If you're feeling under the weather, a warm cup of herbal tea can be very comfor
 
 ## Related Posts
 
-- [7 Healthy Side Dishes to Try Today ...](https://health.allwomenstalk.com/7-healthy-side-dishes-to-try-today/)
-- [is canning worth it](https://lifestyle.allwomenstalk.com/dos-and-donts-of-home-canning/)
-- [Book Update, Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing-2/)
 - [recipes for an upset stomach](https://health.allwomenstalk.com/7-recipes-to-soothe-a-stomach-upset/)
-- [6 Finger-Licking Recipes for the Grill ...](https://lifestyle.allwomenstalk.com/finger-licking-recipes-for-the-grill/)
+- [7 Healthy Side Dishes to Try Today ...](https://health.allwomenstalk.com/7-healthy-side-dishes-to-try-today/)
 - [Shrimp and Corn Chowder - a Soup Your Entire Famil...](https://allwomenstalk.com/shrimp-and-corn-chowder/)
+- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
+- [6 Finger-Licking Recipes for the Grill ...](https://lifestyle.allwomenstalk.com/finger-licking-recipes-for-the-grill/)
 - [7 World Exotic Foods Every Gourmand Must Try ...](https://lifestyle.allwomenstalk.com/world-exotic-foods-every-gourmand-must-try/)
 - [garde manger recipes](https://allwomenstalk.com/small-steps-to-the-garde-manger-breakfast-sausage-with-sage-and-ginger/)
+- [Book Update, Part III: Recipe Testing](https://allwomenstalk.com/book-update-part-iii-recipe-testing-2/)
 - [7 Recipes Kids Can Help Make ...](https://lifestyle.allwomenstalk.com/recipes-kids-can-help-make/)
-- [unwaxed kitchen string](https://allwomenstalk.com/fig-orange-chipotle-pork-roast/)
+- [is canning worth it](https://lifestyle.allwomenstalk.com/dos-and-donts-of-home-canning/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Cool Veggie's to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-cool-veggies-to-grow-in-your-garden/)
 

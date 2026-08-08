@@ -3,7 +3,7 @@ title: "5 Tips on Raising Scented Geraniums ..."
 description: "Plant Outdoors Once Frost Has Passed; Give Them Lots of Sunshine; Watch out for Rotting Stems; Fertilize with Care; Pinch off Dead Flowers; More ..."
 url: "https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/"
 category: "gardening"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 5 Tips on Raising Scented Geraniums ...
@@ -38,14 +38,14 @@ Top Photo Credit: [Orthotrichum](https://www.flickr.com/photos/49147273@N04/5264
 
 - [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
 - [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
-- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
 - [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
 - [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
-- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
-- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
 - [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
+- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
 - [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
+- [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
+- [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 
