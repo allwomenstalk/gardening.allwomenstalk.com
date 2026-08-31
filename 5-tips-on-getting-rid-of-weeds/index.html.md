@@ -36,16 +36,16 @@ Top Photo Credit: [imago2007 (OFF AGAIN)](https://www.flickr.com/photos/imago200
 
 ## Related Posts
 
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
 - [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
+- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
+- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
+- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
-- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
-- [cactus person](https://gardening.allwomenstalk.com/5-reasons-i-like-cactus-plants/)
-- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
-- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Tips on Chasing Bugs Away ...](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
 

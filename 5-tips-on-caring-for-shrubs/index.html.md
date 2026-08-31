@@ -36,14 +36,14 @@ Top Photo Credit: [mckenzieo](https://www.flickr.com/photos/mckenzieo/1601347209
 
 ## Related Posts
 
-- [prettiest plants in the world](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 - [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
-- [5 Tips on Making a Patio ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-patio/)
+- [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
 - [worst smelling flower in the world](https://gardening.allwomenstalk.com/5-bad-smelling-plants-to-not-grow/)
 - [5 Tips on Caring for Fish in the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-fish-in-the-garden/)
-- [5 Ways to Grow the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-tomatoes/)
+- [5 Tips on Making a Patio ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-patio/)
 - [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
-- [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
+- [prettiest plants in the world](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
+- [5 Ways to Grow the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-tomatoes/)
 - [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
 - [5 Trees for Small Spaces ...](https://gardening.allwomenstalk.com/5-trees-for-small-spaces/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)

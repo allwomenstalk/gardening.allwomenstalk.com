@@ -36,16 +36,16 @@ Top Photo Credit: [Scoonie](https://www.flickr.com/photos/30650647@N04/357901431
 
 ## Related Posts
 
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [My 5 Favorite Eclipse Scenes and Why ...](https://twilight.allwomenstalk.com/my-5-favorite-eclipse-scenes-and-why/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 

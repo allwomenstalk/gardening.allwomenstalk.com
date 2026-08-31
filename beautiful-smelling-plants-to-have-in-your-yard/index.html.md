@@ -57,15 +57,15 @@ So girls, these are just a few of the flowers that are out there that smell oh-s
 ## Related Posts
 
 - [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
-- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
+- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
 - [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
 - [magazines about plants](https://gardening.allwomenstalk.com/top-gardening-magazines-to-read-for-inspiration/)
-- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
-- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
-- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
-- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
 - [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
+- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

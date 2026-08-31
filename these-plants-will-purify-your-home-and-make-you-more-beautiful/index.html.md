@@ -56,15 +56,15 @@ Do you like having live houseplants at home? Which of these do you think you’l
 
 ## Related Posts
 
-- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
-- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
-- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
-- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
-- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
-- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
-- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
 - [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
+- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
+- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
+- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
+- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
+- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
+- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
+- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
 - [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
 - [5 Great Plants for Homemade Beauty Products ...](https://gardening.allwomenstalk.com/5-great-plants-for-homemade-beauty-products/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)

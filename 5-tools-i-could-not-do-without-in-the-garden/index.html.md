@@ -56,16 +56,16 @@ Top Photo Credit: [ahp_ibanez](https://www.flickr.com/photos/29738009@N08/297546
 
 ## Related Posts
 
-- [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
-- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
 - [5 Tips on Growing Palm Trees ...](https://gardening.allwomenstalk.com/5-tips-on-growing-palm-trees/)
+- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
+- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
+- [fun facts about gardens](https://gardening.allwomenstalk.com/5-amazing-gardening-facts/)
+- [5 Plants to Grow in the Winter ...](https://gardening.allwomenstalk.com/5-plants-to-grow-in-the-winter/)
 - [ficus tree root system](https://gardening.allwomenstalk.com/5-garden-tips-on-ficus-trees/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
-- [5 Poison Plants ...](https://gardening.allwomenstalk.com/5-poison-plants/)
 - [how to grow maple trees](https://gardening.allwomenstalk.com/5-tips-on-growing-maple-trees/)
-- [5 Cool Fall Flowers ...](https://gardening.allwomenstalk.com/5-cool-fall-flowers/)
-- [5 Tricks to Keeping Your Garden Healthy ...](https://gardening.allwomenstalk.com/5-tricks-to-keeping-your-garden-healthy/)
 - [how do you kill a banana tree](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-trees/)
+- [5 Tricks to Keeping Your Garden Healthy ...](https://gardening.allwomenstalk.com/5-tricks-to-keeping-your-garden-healthy/)
 - [5 Basic Gardening Tools You Need ...](https://gardening.allwomenstalk.com/5-basic-gardening-tools-you-need/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 

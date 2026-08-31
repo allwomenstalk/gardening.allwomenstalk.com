@@ -36,16 +36,16 @@ Top Photo Credit: [spike55151](https://www.flickr.com/photos/spike55151/14002806
 
 ## Related Posts
 
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [5 Myths about Gardening ...](https://gardening.allwomenstalk.com/myths-about-gardening/)
 - [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
-- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
-- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
 - [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
 - [5 Fast Growing Plants …](https://gardening.allwomenstalk.com/fast-growing-plants/)
-- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
 - [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
+- [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
+- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
+- [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [5 Cool Flowers ...](https://gardening.allwomenstalk.com/5-cool-flowers/)
 - [5 Beautiful Plants for a Garden ...](https://gardening.allwomenstalk.com/5-beautiful-plants-for-a-garden/)
 

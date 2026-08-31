@@ -36,16 +36,16 @@ Top Photo Credit: [generalamazo2000](https://www.flickr.com/photos/14864627@N02/
 
 ## Related Posts
 
-- [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
-- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
-- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
 - [5 Gorgeous Annual Plants …](https://gardening.allwomenstalk.com/gorgeous-annual-plants/)
-- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
-- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
-- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
+- [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
 - [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
 - [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
+- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
+- [how to fertilize carrots](https://gardening.allwomenstalk.com/tips-on-growing-carrots/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
+- [why is my mimosa tree dying](https://gardening.allwomenstalk.com/tips-on-taking-care-of-a-mimosa-tree/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

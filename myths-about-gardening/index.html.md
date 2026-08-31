@@ -36,16 +36,16 @@ Top Photo Credit: [Dan.King](https://www.flickr.com/photos/dk400d/4056569601/)
 
 ## Related Posts
 
-- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
+- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
 - [what is the lowest temperature a bird of paradise ...](https://gardening.allwomenstalk.com/5-tips-on-growing-birds-of-paradise-flowers/)
-- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
 - [tips on growing squash](https://gardening.allwomenstalk.com/7-tips-on-growing-squash/)
 - [5 Fast Growing Plants …](https://gardening.allwomenstalk.com/fast-growing-plants/)
-- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
-- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
 - [what to do about bully hummingbirds](https://gardening.allwomenstalk.com/ways-to-attract-hummingbirds-to-your-garden/)
+- [seedling in pot](https://gardening.allwomenstalk.com/5-ways-to-make-seedling-pots/)
+- [how to save money on landscaping](https://gardening.allwomenstalk.com/5-tips-on-saving-money-on-your-garden/)
+- [how to create zen garden](https://gardening.allwomenstalk.com/steps-to-create-a-zen-garden/)
 - [5 Tips on Planting Summer Flowering Bulbs ...](https://gardening.allwomenstalk.com/tips-on-planting-summer-flowering-bulbs/)
-- [5 Ways to Conserve when Watering the Garden ...](https://gardening.allwomenstalk.com/ways-to-conserve-when-watering-the-garden/)
+- [7 Tips on Creating Mulch ...](https://gardening.allwomenstalk.com/7-tips-on-creating-mulch/)
 - [5 Basic Rules of Gardening You Should Know ...](https://gardening.allwomenstalk.com/5-basic-rules-of-gardening-you-should-know/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

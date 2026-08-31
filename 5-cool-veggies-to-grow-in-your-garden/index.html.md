@@ -36,16 +36,16 @@ Top Photo Credit: [kthread](https://www.flickr.com/photos/kthread/2705756913/)
 
 ## Related Posts
 
-- [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
-- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
-- [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
-- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
-- [5 Tips on Caring for Your Garden during the Cold ....](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-garden-during-the-cold/)
 - [5 of My Favorite Flowers ...](https://gardening.allwomenstalk.com/5-of-my-favorite-flowers/)
-- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
 - [5 Tips on Giving Your Garden More Love ...](https://gardening.allwomenstalk.com/5-tips-on-giving-your-garden-more-love/)
-- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [when to harvest tomatoes](https://gardening.allwomenstalk.com/5-tips-on-harvesting-tomatoes/)
 - [how to keep plant warm](https://gardening.allwomenstalk.com/5-tips-on-keeping-plants-warm/)
+- [does bougainvillea like coffee grounds](https://gardening.allwomenstalk.com/5-green-thumb-tips/)
+- [vine maintenance](https://gardening.allwomenstalk.com/5-tips-on-maintaining-vines/)
+- [types of garden fertilizer](https://gardening.allwomenstalk.com/5-types-of-fertilizer-to-use-in-your-garden/)
+- [5 Ideas for the Perfect Koi Garden That is Healthy...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-koi-garden-that-is-healthy/)
+- [5 Garden Tips for Cucumbers ...](https://gardening.allwomenstalk.com/5-garden-tips-for-cucumbers/)
+- [5 Tips on Caring for Your Garden during the Cold ....](https://gardening.allwomenstalk.com/5-tips-on-caring-for-your-garden-during-the-cold/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
 

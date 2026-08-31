@@ -56,16 +56,16 @@ Well ladies, these are the things I think will spice up your yard! What have you
 
 ## Related Posts
 
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
-- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
-- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
-- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
 - [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
-- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
-- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
-- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
 - [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
+- [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
+- [agave watering](https://gardening.allwomenstalk.com/tips-for-growing-blue-agave-indoors/)
+- [gardening and depression](https://gardening.allwomenstalk.com/ways-gardening-helps-with-depression/)
+- [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
+- [what are the easiest vegetables to grow](https://food.allwomenstalk.com/garden-vegetables-you-can-grow-indoors-right-now/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Your Backyard Garden ...](https://gardening.allwomenstalk.com/5-tips-on-your-backyard-garden/)
 

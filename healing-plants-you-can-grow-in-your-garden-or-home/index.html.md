@@ -68,16 +68,16 @@ These amazing healing plants are some of my favorites, but I’d love to know if
 
 ## Related Posts
 
-- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
 - [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
 - [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
-- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
 - [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
-- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
-- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
 - [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
+- [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Things You Can do in Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-can-do-in-your-garden/)
 

@@ -36,16 +36,16 @@ Top Photo Credit: _Tim Stubbs_
 
 ## Related Posts
 
-- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
-- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
-- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
+- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
+- [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
+- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
+- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
 - [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
 - [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 - [5 Tips on Caring for a Mimosa Tree ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 

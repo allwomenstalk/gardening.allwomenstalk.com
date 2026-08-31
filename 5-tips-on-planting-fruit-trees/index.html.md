@@ -38,14 +38,14 @@ Top Photo Credit: [Martin LaBar](https://www.flickr.com/photos/martinlabar/70501
 
 - [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
 - [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
-- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
-- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
+- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
 - [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 

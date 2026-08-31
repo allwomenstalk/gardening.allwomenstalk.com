@@ -68,16 +68,16 @@ To me there’s nothing better than walking outside and picking your own produce
 
 ## Related Posts
 
-- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
 - [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
-- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
-- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
-- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
-- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
 - [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
 - [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
+- [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
 - [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [garden investment](https://gardening.allwomenstalk.com/best-gardening-investments-to-make-that-make-a-world-of-difference/)
+- [what blooms in the fall that causes allergies](https://gardening.allwomenstalk.com/flowering-plants-that-might-be-aggravating-your-allergies/)
+- [plants heal](https://gardening.allwomenstalk.com/healing-plants-you-can-grow-in-your-garden-or-home/)
+- [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Cool Plants You Have to Have ...](https://gardening.allwomenstalk.com/5-cool-plants-you-have-to-have/)
 

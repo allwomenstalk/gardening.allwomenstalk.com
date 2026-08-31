@@ -36,16 +36,16 @@ Top Photo Credit: [AGreatEuropeTripPlanner!](https://www.flickr.com/photos/great
 
 ## Related Posts
 
-- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
-- [become a writer](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
-- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
-- [7 Ear Care Tips ...](https://health.allwomenstalk.com/7-ear-care-tips/)
-- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
-- [highlight tips](https://hair.allwomenstalk.com/tips-for-successful-home-highlights/)
-- [7 Tips for Saving Your Eyesight ...](https://health.allwomenstalk.com/7-tips-for-saving-your-eyesight/)
 - [caring for jewelry](https://jewelry.allwomenstalk.com/7-tips-on-caring-for-your-jewelry/)
+- [7 Tips for Saving Your Eyesight ...](https://health.allwomenstalk.com/7-tips-for-saving-your-eyesight/)
+- [7 Ear Care Tips ...](https://health.allwomenstalk.com/7-ear-care-tips/)
 - [5 Tips on the Perfect Birdfeeder ...](https://gardening.allwomenstalk.com/5-tips-on-the-perfect-birdfeeder/)
+- [botox party at home](https://lifestyle.allwomenstalk.com/tips-for-planning-the-perfect-botox-party/)
+- [want a new gadget](https://lifestyle.allwomenstalk.com/helpful-tips-for-choosing-a-new-gadget/)
+- [highlight tips](https://hair.allwomenstalk.com/tips-for-successful-home-highlights/)
+- [tips to write poetry](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
 - [jogging date](https://health.allwomenstalk.com/7-tips-for-a-jogging-date/)
+- [become a writer](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [5 Reasons to Make a Bird Feeder ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-bird-feeder/)
 - [5 Tips on Keeping Bugs out of the Garden ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-bugs-out-of-the-garden/)
 

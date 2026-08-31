@@ -76,15 +76,15 @@ What kind of houseplants do you want in your space? What else would you add to t
 
 ## Related Posts
 
-- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
-- [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
-- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
 - [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
+- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
 - [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
 - [22 Tips for Creating Flawless Flower Arrangements ...](https://gardening.allwomenstalk.com/flower-arrangements-home/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
 - [michele tremblay](https://wedding.allwomenstalk.com/guest-blogger-michele-tremblay-flower-expert/)
-- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
 - [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Green Thumb Gals Will Love These Epic Gardening Tr...](https://gardening.allwomenstalk.com/gardening-hacks-every-woman-needs-to-know/)

@@ -36,16 +36,16 @@ Top Photo Credit: [SE Asia Images |](https://www.flickr.com/photos/iprahin/38110
 
 ## Related Posts
 
-- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
-- [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
 - [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
-- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
-- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
 - [gardening on a budget](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
-- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
-- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [how to collect cypress vine seeds](https://gardening.allwomenstalk.com/5-ways-to-grow-the-cypress-vine/)
 - [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [5 Reasons to Have a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-have-a-garden/)
+- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
+- [5 Benefits of Having a Garden ...](https://gardening.allwomenstalk.com/5-benefits-of-having-a-garden/)
+- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
+- [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
+- [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

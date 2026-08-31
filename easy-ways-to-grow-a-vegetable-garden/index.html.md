@@ -36,16 +36,16 @@ Top Photo Credit: [retro_girl1966](https://www.flickr.com/photos/retro-girl66/26
 
 ## Related Posts
 
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [5 Cool Flowers I Adore ...](https://gardening.allwomenstalk.com/5-cool-flowers-i-adore/)
-- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
-- [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
 - [10 Great Garden Tips for Beginners ...](https://lifestyle.allwomenstalk.com/great-garden-tips-for-beginners/)
-- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
-- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
 - [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)
 - [backyard poisonous plants](https://gardening.allwomenstalk.com/poisonous-plants-found-in-the-yard/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
 - [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
+- [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
+- [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
 - [5 Tips on Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-starting-a-vegetable-garden/)
 - [5 Ways to Grow the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-ways-to-grow-the-best-tomatoes/)
 

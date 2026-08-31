@@ -44,16 +44,16 @@ Sharing your passion for plants is a great way to connect with others. If you're
 
 ## Related Posts
 
-- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
-- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
-- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
-- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
 - [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
-- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
-- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
 - [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
+- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
+- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
+- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)
 

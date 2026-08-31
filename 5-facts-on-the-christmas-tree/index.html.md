@@ -36,15 +36,15 @@ Top Photo Credit: [brianwferry](https://www.flickr.com/photos/bferry/4188024207/
 
 ## Related Posts
 
+- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
 - [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
 - [interesting facts about 50 cent](https://celebs.allwomenstalk.com/8-facts-on-50-cent/)
-- [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
 - [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
 - [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
-- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
 - [facts about elizabeth taylor](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
 - [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
+- [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
 - [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
 - [5 Ghost Facts ...](https://twilight.allwomenstalk.com/5-ghost-facts/)
 - [5 Facts on DNA ...](https://twilight.allwomenstalk.com/5-facts-on-dna/)

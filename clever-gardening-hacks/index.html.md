@@ -64,16 +64,16 @@ You can cut the tops off empty milk bottles and place them over your plants to c
 
 ## Related Posts
 
-- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
-- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
-- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
-- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
-- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
-- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
 - [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
+- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
+- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
+- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

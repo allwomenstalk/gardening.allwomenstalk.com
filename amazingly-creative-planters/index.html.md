@@ -100,16 +100,16 @@ I hope that these** creative planters** inspired you to go the DIY way for your 
 
 ## Related Posts
 
-- [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
-- [cardboard upcycle](https://lifestyle.allwomenstalk.com/clever-ways-to-upcycle-cardboard/)
 - [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 - [diy lace crafts](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
 - [how to make a peplum skirt](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
-- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
-- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
-- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
-- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
 - [diybook](https://lifestyle.allwomenstalk.com/more-wonderful-diy-book-crafts/)
+- [cardboard upcycle](https://lifestyle.allwomenstalk.com/clever-ways-to-upcycle-cardboard/)
+- [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
+- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
+- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
+- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
+- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)
 

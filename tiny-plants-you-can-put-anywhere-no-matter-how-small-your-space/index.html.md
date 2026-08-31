@@ -157,16 +157,16 @@ Do you live in a tiny space? Are you excited to add some plants now that you've 
 
 ## Related Posts
 
+- [fairy garden landscape](https://gardening.allwomenstalk.com/these-fairy-gardens-will-make-your-yard-look-magical-af/)
+- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
+- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
+- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
+- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
+- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
+- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
 - [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
 - [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
-- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
-- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
-- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
-- [fairy garden landscape](https://gardening.allwomenstalk.com/these-fairy-gardens-will-make-your-yard-look-magical-af/)
-- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
 - [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
-- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 

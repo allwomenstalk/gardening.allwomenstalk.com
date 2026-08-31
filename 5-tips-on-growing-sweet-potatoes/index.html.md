@@ -36,16 +36,16 @@ Top Photo Credit: [Dominique Loves Light](https://www.flickr.com/photos/deegoo/1
 
 ## Related Posts
 
-- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
-- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 - [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
-- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
-- [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 - [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
-- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
+- [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
 - [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
+- [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
+- [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 
