@@ -36,16 +36,16 @@ Top Photo Credit: [Mc Shutter](https://www.flickr.com/photos/mc-shutter/73656866
 
 ## Related Posts
 
-- [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
 - [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
-- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
-- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
 - [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
+- [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)
+- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
+- [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 - [5 Gardening Ideas ...](https://gardening.allwomenstalk.com/5-gardening-ideas/)
 

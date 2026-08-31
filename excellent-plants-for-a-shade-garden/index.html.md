@@ -36,16 +36,16 @@ Top Photo Credit: [Sarah's Yard](https://www.flickr.com/photos/sarahsyard/560227
 
 ## Related Posts
 
-- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
-- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
-- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
-- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
-- [bougainvillea cuttings](https://gardening.allwomenstalk.com/5-tips-on-rooting-bougainvillea/)
-- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
-- [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
 - [greenhouse materials list](https://gardening.allwomenstalk.com/types-of-materials-used-for-greenhouses/)
-- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
+- [5 Tips on Making Raised Beds ...](https://gardening.allwomenstalk.com/tips-on-making-raised-beds/)
 - [paris le stylo smoky rose nude](https://gardening.allwomenstalk.com/5-plants-that-need-full-sun/)
+- [5 April Gardening Tips ...](https://gardening.allwomenstalk.com/5-april-gardening-tips/)
+- [crepe myrtle water](https://gardening.allwomenstalk.com/tips-on-caring-for-a-crape-myrtle-tree/)
+- [popular flowers for hanging baskets](https://gardening.allwomenstalk.com/excellent-flower-choices-for-hanging-baskets/)
+- [5 Reasons to Add Light to Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-add-light-to-your-garden/)
+- [7 Tricks on Gardening ...](https://gardening.allwomenstalk.com/7-tricks-on-gardening/)
+- [moist plants](https://gardening.allwomenstalk.com/plants-that-will-grow-in-moist-soil/)
+- [bougainvillea cuttings](https://gardening.allwomenstalk.com/5-tips-on-rooting-bougainvillea/)
 - [Best Plants for Patio Gardening ...](https://gardening.allwomenstalk.com/best-plants-for-patio-gardening/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
 

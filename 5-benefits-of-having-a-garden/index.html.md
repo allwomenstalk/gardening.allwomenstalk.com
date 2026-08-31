@@ -36,16 +36,16 @@ Top Photo Credit: [tropicaLiving](https://www.flickr.com/photos/tropicaliving/30
 
 ## Related Posts
 
-- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
-- [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
-- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
-- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
-- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
-- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
 - [pruning mimosa tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
-- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
+- [how to care for a magnolia tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-magnolia-trees/)
 - [5 Tips on Pruning Herbs ...](https://gardening.allwomenstalk.com/5-tips-on-pruning-herbs/)
+- [best fertilizer for collard greens](https://gardening.allwomenstalk.com/5-tips-on-growing-collard-greens/)
+- [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
+- [how to care for maple trees](https://gardening.allwomenstalk.com/5-tips-on-caring-for-maple-trees/)
+- [bleeding heart propagation](https://gardening.allwomenstalk.com/5-techniques-to-growing-a-bleeding-heart-vine/)
 - [planting banana trees next to house](https://gardening.allwomenstalk.com/5-tips-on-growing-banana-plants/)
+- [gardenia bush pruning](https://gardening.allwomenstalk.com/5-tips-on-caring-for-gardenia-bushes/)
+- [5 Fun Things to do in a Garden ...](https://gardening.allwomenstalk.com/5-fun-things-to-do-in-a-garden/)
 - [5 Reasons to Start a Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-start-a-garden/)
 - [5 Easy Ways to Improve Your Garden ...](https://gardening.allwomenstalk.com/5-easy-ways-to-improve-your-garden/)
 

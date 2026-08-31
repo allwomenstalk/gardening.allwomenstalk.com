@@ -52,16 +52,16 @@ Top Image Source: _secretgardenkent.co.uk_
 
 ## Related Posts
 
-- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
-- [how to look after phalaenopsis orchids](https://gardening.allwomenstalk.com/tips-for-caring-for-phalaenopsis-orchids/)
-- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
-- [edible flowers for champagne](https://cooking.allwomenstalk.com/edible-flowers/)
-- [popular potted plants](https://gardening.allwomenstalk.com/best-potted-plants-to-consider-having-in-your-home/)
-- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
 - [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
+- [how to look after phalaenopsis orchids](https://gardening.allwomenstalk.com/tips-for-caring-for-phalaenopsis-orchids/)
+- [edible flowers for champagne](https://cooking.allwomenstalk.com/edible-flowers/)
+- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
 - [plants to grow at home balcony](https://gardening.allwomenstalk.com/plants-for-a-very-sunny-balcony/)
 - [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
+- [popular potted plants](https://gardening.allwomenstalk.com/best-potted-plants-to-consider-having-in-your-home/)
+- [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
 - [yard bushes](https://gardening.allwomenstalk.com/beautiful-flower-bushes-to-get-for-your-yard/)
+- [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Cool Plants You Have to Have ...](https://gardening.allwomenstalk.com/5-cool-plants-you-have-to-have/)
 

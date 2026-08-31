@@ -100,15 +100,15 @@ I hope that these** creative planters** inspired you to go the DIY way for your 
 
 ## Related Posts
 
-- [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 - [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
-- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
-- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
-- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
-- [how to make a peplum skirt](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
 - [cardboard upcycle](https://lifestyle.allwomenstalk.com/clever-ways-to-upcycle-cardboard/)
-- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
+- [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 - [diy lace crafts](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
+- [how to make a peplum skirt](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
+- [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
+- [moss craft](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
+- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
+- [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
 - [diybook](https://lifestyle.allwomenstalk.com/more-wonderful-diy-book-crafts/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)

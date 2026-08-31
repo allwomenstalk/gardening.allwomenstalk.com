@@ -56,16 +56,16 @@ Do you have live plants in your home? Will you get some now that you've read thi
 
 ## Related Posts
 
-- [strip cartoon example](https://funny.allwomenstalk.com/cartoons-that-express-everyday-girl-problems-we-all-face/)
-- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
 - [emotional detox quotes](https://inspiration.allwomenstalk.com/ways-to-detoxyour-junk-emotions-for-girls-who-feel-out-of-control/)
 - [pimples in weird places](https://skincare.allwomenstalk.com/strangest-places-where-girls-are-getting-pimples-and-ways-to-deal/)
-- [vision board inspo](https://love.allwomenstalk.com/relationshipgoals-inspo-every-woman-can-put-on-her-vision-board/)
-- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
-- [hidden snapchat features](https://apps.allwomenstalk.com/hidden-features-of-snapchat-every-girl-must-know/)
 - [candace cabrera tavino](https://fitness.allwomenstalk.com/genius-yoga-stretches-for-girls-who-need-to-boost-their-creativity/)
-- [mr strong hand](https://love.allwomenstalk.com/the-remarkable-things-strong-women-do-while-waiting-for-mr-right/)
+- [vision board inspo](https://love.allwomenstalk.com/relationshipgoals-inspo-every-woman-can-put-on-her-vision-board/)
+- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
+- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
+- [strip cartoon example](https://funny.allwomenstalk.com/cartoons-that-express-everyday-girl-problems-we-all-face/)
+- [hidden snapchat features](https://apps.allwomenstalk.com/hidden-features-of-snapchat-every-girl-must-know/)
 - [comics about anxiety](https://funny.allwomenstalk.com/girls-with-anxiety-can-appreciate-and-relate-to-these-comic-strips/)
+- [mr strong hand](https://love.allwomenstalk.com/the-remarkable-things-strong-women-do-while-waiting-for-mr-right/)
 - [Superfoods for Girls Who Need an Instant Productiv...](https://food.allwomenstalk.com/chow-down-on-these-superfoods-to-increase-productivity/)
 - [Tiny Plants That Girls Who Live in Small Spaces Ca...](https://gardening.allwomenstalk.com/tiny-plants-you-can-put-anywhere-no-matter-how-small-your-space/)
 

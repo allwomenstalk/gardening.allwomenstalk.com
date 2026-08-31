@@ -74,16 +74,16 @@ Greenery in your home does so much more than just clean the air--it brings in na
 
 ## Related Posts
 
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
-- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
-- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
-- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
-- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
 - [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
+- [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
+- [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
+- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
+- [what is eating my hibiscus flowers at night](https://gardening.allwomenstalk.com/birds-that-will-get-rid-of-pests-in-the-garden/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [sidewalk garden ideas](https://gardening.allwomenstalk.com/how-to-start-a-sidewalk-garden/)
 - [Best Plants for Patio Gardening ...](https://gardening.allwomenstalk.com/best-plants-for-patio-gardening/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 

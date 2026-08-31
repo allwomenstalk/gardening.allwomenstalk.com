@@ -45,13 +45,13 @@ This is a great little plant to keep on your desk to make things look more homel
 ## Related Posts
 
 - [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
 - [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
 - [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
-- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/humming-bird-feeders/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
+- [Flowers 101: Daffodils ...](https://allwomenstalk.com/flowers-101-daffodils/)
 - [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
 - [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)

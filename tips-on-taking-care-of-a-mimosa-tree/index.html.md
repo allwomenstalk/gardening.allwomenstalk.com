@@ -36,16 +36,16 @@ Top Photo Credit: [theroadhere](https://www.flickr.com/photos/theroadhere/260975
 
 ## Related Posts
 
-- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
-- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
-- [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
-- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
-- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
-- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
 - [wildlife friendly garden](https://gardening.allwomenstalk.com/5-tips-on-creating-a-wildlife-friendly-garden/)
-- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
+- [5 Tips on Raising Scented Geraniums ...](https://gardening.allwomenstalk.com/tips-on-raising-scented-geraniums/)
 - [nursery employee responsibilities](https://gardening.allwomenstalk.com/5-tips-for-those-working-at-nurseries/)
+- [5 Ways to Make Gardening Easier ...](https://gardening.allwomenstalk.com/ways-to-make-gardening-easier/)
+- [free gardening magazines](https://gardening.allwomenstalk.com/5-reasons-to-read-garden-magazines/)
+- [5 Bugs That Are Good for Your Garden ...](https://gardening.allwomenstalk.com/bugs-that-are-good-for-your-garden/)
+- [5 Easy Ways to Grow a Vegetable Garden ...](https://gardening.allwomenstalk.com/easy-ways-to-grow-a-vegetable-garden/)
+- [weeds bloopers](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
 - [how far apart do you plant cantaloupe](https://gardening.allwomenstalk.com/7-tips-on-growing-cantaloupe/)
+- [The 5 Best Plants for Cool Climates …](https://gardening.allwomenstalk.com/the-best-plants-for-cool-climates/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 - [5 Tips on Caring for a Mimosa Tree ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-mimosa-tree/)
 

@@ -180,16 +180,16 @@ What herbs will you be growing this spring?
 
 ## Related Posts
 
-- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
-- [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
 - [southern home d��cor](https://gardening.allwomenstalk.com/exotic-plants-to-freshen-up-your-decor/)
-- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
 - [why grow your own vegetables](https://gardening.allwomenstalk.com/brilliant-reasons-to-grow-your-own-vegetables/)
-- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
 - [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [The Advantages of Growing Autoflowering Weed Seeds...](https://allwomenstalk.com/advantages-growing-autoflowering-weed-seeds/)
 - [exotic expensive plants](https://allwomenstalk.com/plant-nurturing-exotic-plants/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
+- [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
+- [gardening in the city](https://gardening.allwomenstalk.com/great-tips-for-gardening-in-the-city/)
+- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 

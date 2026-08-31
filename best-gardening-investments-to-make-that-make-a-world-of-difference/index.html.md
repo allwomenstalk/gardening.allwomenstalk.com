@@ -56,16 +56,16 @@ These are just a few suggestions for gardening investments that I have seen make
 
 ## Related Posts
 
-- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
 - [spring with flowers](https://gardening.allwomenstalk.com/popular-spring-flowers-and-what-they-mean/)
 - [cool tropical fish](https://lifestyle.allwomenstalk.com/cool-tropical-fish-to-add-to-your-tank/)
-- [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
+- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
 - [best florist in honolulu](https://gardening.allwomenstalk.com/types-of-flowers-that-can-make-you-happier/)
 - [healthiest vegetables for you](https://gardening.allwomenstalk.com/of-the-healthiest-vegetables-that-are-easy-enough-for-any-gardener-to-grow/)
 - [classic gardens - ellerslie reviews](https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/)
+- [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
 - [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
-- [creative containers](https://gardening.allwomenstalk.com/creative-ways-to-reuse-containers-for-plants-and-herbs/)
-- [growflowers](https://gardening.allwomenstalk.com/easy-to-grow-flowers-for-your-garden-this-summer/)
+- [how to attract more birds to my yard](https://gardening.allwomenstalk.com/easy-ways-to-attract-birds-to-your-yard/)
 - [5 Tips on Backyard Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-backyard-gardening/)
 - [8 Ideas for Gardening on a Budget ...](https://gardening.allwomenstalk.com/8-ideas-for-gardening-on-a-budget/)
 

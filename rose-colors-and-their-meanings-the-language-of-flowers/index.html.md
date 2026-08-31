@@ -70,16 +70,16 @@ So now the next time you are presented with or go to buy roses, you’ll underst
 
 ## Related Posts
 
-- [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
-- [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
-- [how do you answer what's up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
 - [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
-- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
-- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
-- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
 - [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
-- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
 - [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
+- [how do you answer what's up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
+- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
+- [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
+- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
+- [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
+- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
+- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Caring for Roses ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-roses/)
 

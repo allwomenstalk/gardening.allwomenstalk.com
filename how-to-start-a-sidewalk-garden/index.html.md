@@ -32,16 +32,16 @@ Before you plant anything, remember to make sure that you plant sun-seeking grou
 
 ## Related Posts
 
-- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
-- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
+- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
 - [good dorm room plants](https://gardening.allwomenstalk.com/pretty-easy-care-plants-for-your-dorm-room/)
 - [gardens in a jar](https://gardening.allwomenstalk.com/ways-to-display-your-jar-herb-gardens/)
-- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
-- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
 - [what's the difference between marjoram and oregano](https://food.allwomenstalk.com/everything-you-need-to-know-about-marjoram/)
-- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
 - [garden features ideas](https://gardening.allwomenstalk.com/top-design-ideas-to-create-a-cozy-garden-space/)
-- [hummingbird lavender](https://gardening.allwomenstalk.com/flowering-plants-that-attract-hummingbirds/)
+- [horticulture for beginners](https://gardening.allwomenstalk.com/a-beginners-guide-to-horticulture/)
+- [use of flower](https://food.allwomenstalk.com/how-to-use-edible-flowers-properly/)
+- [mason jar gardening](https://gardening.allwomenstalk.com/diy-mason-jar-herb-gardening/)
+- [plants for bottle garden](https://gardening.allwomenstalk.com/how-to-grow-a-bottle-garden/)
+- [best lawn mowers for large yards](https://gardening.allwomenstalk.com/how-to-pick-the-best-lawn-mower-for-your-needs/)
 - [Gardening Tips for the Beginner ...](https://gardening.allwomenstalk.com/gardening-tips-for-the-beginner/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
 

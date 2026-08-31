@@ -140,16 +140,16 @@ Which of these herbs do you like to cook with? Are you planning to start an herb
 
 ## Related Posts
 
+- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
 - [Don't Wait until Next Season to Plant These Garden...](https://gardening.allwomenstalk.com/dont-wait-until-next-season-to-plant-these-garden-seeds/)
-- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
 - [portable herb garden](https://gardening.allwomenstalk.com/what-do-you-need-to-grow-your-own-herb-garden/)
 - [popular spring blooms](https://gardening.allwomenstalk.com/popular-spring-flowers/)
-- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
-- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
-- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
-- [How to Prepare Your Garden before Spring Arrives ....](https://gardening.allwomenstalk.com/how-to-prepare-your-garden-before-spring-arrives/)
 - [Perfect Houseplants for Girls Who Lack a Green Thu...](https://gardening.allwomenstalk.com/choose-these-houseplants-if-you-have-a-black-thumb/)
+- [Flower Garden Inspos to a Turn Your Yard into a Be...](https://gardening.allwomenstalk.com/the-flower-gardens-will-give-you-inspiration-for-your-own-home/)
+- [Plants That'll Bring Pollinators to Your Garden .....](https://gardening.allwomenstalk.com/plants-thatll-bring-pollinators-to-your-garden/)
+- [landscape projects](https://gardening.allwomenstalk.com/urban-garden-landscape-projects/)
 - [Undemanding Houseplants for Busy Girls ⏰ Who Still...](https://gardening.allwomenstalk.com/undemanding-houseplants-for-busy-girls-who-still-want-foliage/)
+- [gardening in small spaces](https://gardening.allwomenstalk.com/tips-for-gardening-in-small-spaces/)
 - [5 Herbs to Grow in Your Garden ...](https://gardening.allwomenstalk.com/5-herbs-to-grow-in-your-garden/)
 - [5 Plants to Have Indoors ...](https://gardening.allwomenstalk.com/5-plants-to-have-indoors/)
 

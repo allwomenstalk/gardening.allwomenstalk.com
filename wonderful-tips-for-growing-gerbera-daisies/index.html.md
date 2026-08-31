@@ -45,16 +45,16 @@ See? Growing Gerbera daisies isn't that hard at all! Once you pick the right siz
 
 ## Related Posts
 
-- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
 - [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
-- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
-- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
-- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
 - [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
-- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [flowers that symbolize forgiveness](https://gardening.allwomenstalk.com/common-flowers-and-their-meanings/)
+- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
 - [urban garden project](https://gardening.allwomenstalk.com/reasons-to-join-an-urban-gardening-project/)
 - [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
+- [what vegetables to put in a garden](https://gardening.allwomenstalk.com/vegetables-to-include-in-your-garden/)
+- [how to keep the rainforest safe when visiting it](https://lifestyle.allwomenstalk.com/ways-you-can-help-protect-the-rainforest/)
+- [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
 - [5 Tips on Planting Flowers ...](https://gardening.allwomenstalk.com/5-tips-on-planting-flowers/)
 - [5 Tips on Keeping the Garden Beautiful ...](https://gardening.allwomenstalk.com/5-tips-on-keeping-the-garden-beautiful/)
 

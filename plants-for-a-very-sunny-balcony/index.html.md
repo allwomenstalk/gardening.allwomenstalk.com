@@ -56,15 +56,15 @@ See? There are tons of gorgeous plants that tolerate sun! Would you consider put
 
 ## Related Posts
 
-- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
-- [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
-- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
-- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
-- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
 - [yard bushes](https://gardening.allwomenstalk.com/beautiful-flower-bushes-to-get-for-your-yard/)
+- [paris stylo smoky shadow garde](https://gardening.allwomenstalk.com/beautiful-smelling-plants-to-have-in-your-yard/)
+- [pretty perennials](https://gardening.allwomenstalk.com/pretty-perennials-to-plant-right-now/)
 - [alison pest control](https://gardening.allwomenstalk.com/natural-pest-control-methods-for-your-garden/)
+- [cool it spice](https://gardening.allwomenstalk.com/cool-things-you-can-do-to-spice-up-your-yard/)
 - [flowers work](https://lifestyle.allwomenstalk.com/simple-tricks-i-learned-from-working-at-a-flower-shop/)
+- [succulent woman meaning](https://gardening.allwomenstalk.com/adorable-succulents-to-get-your-hands-on/)
 - [summer gardening tips](https://gardening.allwomenstalk.com/must-know-gardening-tips-for-the-summer/)
+- [easy herb to grow](https://food.allwomenstalk.com/luscious-herbs-you-can-grow-right-in-your-kitchen/)
 - [replanting daisies](https://gardening.allwomenstalk.com/wonderful-tips-for-growing-gerbera-daisies/)
 - [Best Plants for Patio Gardening ...](https://gardening.allwomenstalk.com/best-plants-for-patio-gardening/)
 - [5 Ideas for the Perfect Garden ...](https://gardening.allwomenstalk.com/5-ideas-for-the-perfect-garden/)
