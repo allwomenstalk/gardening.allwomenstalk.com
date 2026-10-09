@@ -3,7 +3,7 @@ title: "7 Perfect Plants for a Water Garden ..."
 description: "Papyrus; Lotus; Equisetum; Azolla; Taro; More ..."
 url: "https://gardening.allwomenstalk.com/perfect-plants-for-a-water-garden/"
 category: "gardening"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 7 Perfect Plants for a Water Garden ...
@@ -57,15 +57,15 @@ When creating your own water garden, do make sure that you check your local quar
 ## Related Posts
 
 - [things for compost](https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/)
-- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
 - [grow superfoods](https://gardening.allwomenstalk.com/superfoods-you-can-grow-in-your-own-garden/)
 - [what makes cut flowers last longer](https://gardening.allwomenstalk.com/tricks-to-make-cut-flowers-last-longer/)
-- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
-- [plants at office desk](https://gardening.allwomenstalk.com/indoor-plants-ideal-for-your-desk-or-office/)
 - [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
-- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
 - [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [is creeping charlie edible](https://food.allwomenstalk.com/wild-edible-plants-that-you-can-forage/)
+- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
+- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
+- [plants at office desk](https://gardening.allwomenstalk.com/indoor-plants-ideal-for-your-desk-or-office/)
+- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
 - [7 Garden Plants I Can Easily Grow in a Pot ...](https://gardening.allwomenstalk.com/7-garden-plants-i-can-easily-grow-in-a-pot/)
 - [7 Ways to Get Ready for Garden Time ...](https://gardening.allwomenstalk.com/7-ways-to-get-ready-for-garden-time/)
 

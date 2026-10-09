@@ -3,7 +3,7 @@ title: "5 Tips on Growing Herbs ..."
 description: "Purchase Plants if You Want Herbs Soon; Give Them Sunlight; Don’t Let Herbs Dry up; Give Them Good Soil; Pinch Herbs Back for More; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-growing-herbs/"
 category: "gardening"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 5 Tips on Growing Herbs ...
@@ -32,20 +32,18 @@ As a general rule, if you pinch off the newer parts of your herb plants the enti
 
 I hope you find these suggestions helpful. I like to have a variety of herbs on hand, even if I don’t end up using them all. Some of them just look cool setting in the window, such as rosemary. This bushy little plant has even been used as a table decoration, due to its sturdiness and ability to withstand being decorated with ornaments. What are your favorite herbs to grow?
 
-Top Photo Credit: [Liyin the Designer-in-Pajamas](https://www.flickr.com/photos/liyin/189053339/)
-
 ## Related Posts
 
-- [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
-- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
+- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
 - [watermelon gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-watermelon/)
-- [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
-- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
+- [5 Reasons Gardening Changes My Mood ...](https://gardening.allwomenstalk.com/5-reasons-gardening-changes-my-mood/)
+- [5 Prettiest Plants to Have in Your Garden ...](https://gardening.allwomenstalk.com/5-prettiest-plants-to-have-in-your-garden/)
 - [cow manure in vegetable garden](https://gardening.allwomenstalk.com/why-do-gardeners-use-cow-manure/)
+- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
+- [shrubs care](https://gardening.allwomenstalk.com/5-tips-on-caring-for-shrubs/)
 - [5 Trees for Small Spaces ...](https://gardening.allwomenstalk.com/5-trees-for-small-spaces/)
 - [lettuce planting tips](https://gardening.allwomenstalk.com/5-tips-on-growing-lettuce/)
-- [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
-- [5 Tips on Container Gardening ...](https://gardening.allwomenstalk.com/5-tips-on-container-gardening/)
+- [growing orange trees](https://gardening.allwomenstalk.com/5-tips-on-growing-orange-trees/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 - [5 Tips on Growing Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-tomatoes/)
 

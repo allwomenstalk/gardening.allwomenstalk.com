@@ -3,7 +3,7 @@ title: "7 Flowers That Only Bloom at Night ..."
 description: "Queen of the Night; Datura; Evening Primrose; Saguaro; Evening Scented Stock; More ..."
 url: "https://gardening.allwomenstalk.com/7-flowers-that-only-bloom-at-night/"
 category: "gardening"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 7 Flowers That Only Bloom at Night ...
@@ -38,20 +38,18 @@ This evergreen shrub produces a cluster of white flowers that open each evening 
 
 I was surprised at how few night blooming flowers I was able to find. This list of 7 flowers that only bloom at night do give you plenty of options to create a nice moonlight garden that smells good too. What night blooming flowers have you seen before?
 
-Top Photo Credit: [tlmartinsr](https://www.flickr.com/photos/tlmartinsr/262197292/)
-
 ## Related Posts
 
+- [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
 - [5 Tips on Mowing Your Grass ...](https://gardening.allwomenstalk.com/5-tips-on-mowing-your-grass/)
 - [5 Best Easy to Grow Plants ...](https://gardening.allwomenstalk.com/5-best-easy-to-grow-plants/)
 - [5 Tips on Growing Bromeliads ...](https://gardening.allwomenstalk.com/5-tips-on-growing-bromeliads/)
-- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
 - [alternatives to soil](https://gardening.allwomenstalk.com/alternatives-to-needing-dirt-for-gardening/)
-- [keep pests out of garden](https://gardening.allwomenstalk.com/5-ways-to-keep-pests-out-of-your-garden/)
-- [5 Reasons to Make a Spring Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-spring-garden/)
 - [Top 6 Cactus Plants to Have ...](https://gardening.allwomenstalk.com/top-6-cactus-plants-to-have/)
-- [5 Garden Tips from Me to You ...](https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/)
 - [5 Tips on Caring for Jasmine Bushes ...](https://gardening.allwomenstalk.com/5-tips-on-caring-for-jasmine-bushes/)
+- [sweet potatoes closet](https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/)
+- [5 Reasons to Make a Spring Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-make-a-spring-garden/)
+- [5 Garden Tips from Me to You ...](https://gardening.allwomenstalk.com/5-garden-tips-from-me-to-you/)
 - [7 Flowers That Remind Me That Life is Good …](https://gardening.allwomenstalk.com/7-flowers-that-remind-me-that-life-is-good/)
 - [7 Vegetable Garden Ideas ...](https://gardening.allwomenstalk.com/7-vegetable-garden-ideas/)
 
