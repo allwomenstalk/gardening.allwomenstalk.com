@@ -3,7 +3,7 @@ title: "5 Tips on Decorating Your Garden for the Holidays ..."
 description: "Group Container Plants Together; Plant Some Fall Color; Hang a Wreath or Two; Place Potted Plants along the Edges; Wrap Trees in Lights; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/"
 category: "gardening"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 5 Tips on Decorating Your Garden for the Holidays ...
@@ -37,12 +37,12 @@ Top Photo Credit: [Mc Shutter](https://www.flickr.com/photos/mc-shutter/73656866
 ## Related Posts
 
 - [5 Tips on Getting Rid of Weeds ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-weeds/)
-- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
-- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
-- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
 - [how to use a zen garden](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
-- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [8 Magnificent Plants You Can Grow in a Pot ...](https://gardening.allwomenstalk.com/8-magnificent-plants-you-can-grow-in-a-pot/)
+- [eggplant gardening tips](https://gardening.allwomenstalk.com/5-tips-on-growing-eggplant/)
 - [plants](https://gardening.allwomenstalk.com/5-things-that-will-kill-a-plant/)
+- [how to hedge bushes](https://gardening.allwomenstalk.com/5-tips-on-hedging-the-bushes/)
+- [do chives like full sun](https://gardening.allwomenstalk.com/5-tips-on-growing-chives/)
 - [5 Cool Perennials ...](https://gardening.allwomenstalk.com/5-cool-perennials/)
 - [8 Easy Tips for Starting a Vegetable Garden ...](https://gardening.allwomenstalk.com/8-easy-tips-for-starting-a-vegetable-garden/)
 - [herbs for a kitchen garden](https://gardening.allwomenstalk.com/8-herbs-you-can-grow-in-your-kitchen-garden/)

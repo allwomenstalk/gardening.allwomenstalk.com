@@ -3,7 +3,7 @@ title: "9 Best Things to Compost for Your Garden ..."
 description: "Juice Pulp; Egg Shells; Coffee Grounds; Tea Bags; Lawn Clippings; More ..."
 url: "https://gardening.allwomenstalk.com/best-things-to-compost-for-your-garden/"
 category: "gardening"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 9 Best Things to Compost for Your Garden ...
@@ -68,15 +68,15 @@ Some of the worst things to compost include cooking oil, walnuts, dead plants, a
 
 ## Related Posts
 
-- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
-- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
-- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
-- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
-- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
 - [keeping soil healthy](https://gardening.allwomenstalk.com/ways-to-keep-your-soil-healthy/)
-- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
-- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [fairie gardens](https://gardening.allwomenstalk.com/fantastic-fairy-gardens-for-your-yard/)
+- [cornmeal for weeds](https://gardening.allwomenstalk.com/ways-to-kill-weeds-without-using-chemicals/)
+- [heirloom fruits](https://food.allwomenstalk.com/heirloom-fruits-and-vegetables/)
 - [how long for grass to recover from drought](https://gardening.allwomenstalk.com/ways-to-recover-your-lawn-after-a-drought/)
+- [cat friendly gardens](https://gardening.allwomenstalk.com/ways-to-create-a-cat-friendly-garden/)
+- [designing flower garden](https://gardening.allwomenstalk.com/beautiful-ideas-for-your-outdoor-flower-gardens/)
+- [keeping plants watered while away](https://gardening.allwomenstalk.com/ways-to-water-your-plants-when-youre-away-from-home/)
+- [safety tips for gardening](https://gardening.allwomenstalk.com/gardening-safety-tips-for-seniors/)
 - [interesting facts about the venus fly trap](https://gardening.allwomenstalk.com/killer-plants-you-dont-want-in-your-garden/)
 - [5 Things You Need to Start Your Garden ...](https://gardening.allwomenstalk.com/5-things-you-need-to-start-your-garden/)
 - [Going Green in Your Garden ...](https://gardening.allwomenstalk.com/going-green-in-your-garden/)

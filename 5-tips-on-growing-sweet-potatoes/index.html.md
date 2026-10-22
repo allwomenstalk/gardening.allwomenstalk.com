@@ -3,7 +3,7 @@ title: "5 Tips on Growing Sweet Potatoes ..."
 description: "Sprout Potatoes before You Plant Them; Cut Apart the Sprouts; Plant in Loose Soil; Keep Weeds in Check until Leaves Form; Wait until the Leaves Begin to Turn Yellow before Harvesting; More ..."
 url: "https://gardening.allwomenstalk.com/5-tips-on-growing-sweet-potatoes/"
 category: "gardening"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 5 Tips on Growing Sweet Potatoes ...
@@ -36,16 +36,16 @@ Top Photo Credit: [Dominique Loves Light](https://www.flickr.com/photos/deegoo/1
 
 ## Related Posts
 
-- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
 - [relighting a pre lit christmas tree](https://gardening.allwomenstalk.com/5-tips-on-caring-for-a-christmas-tree/)
-- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
-- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
-- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
 - [greenhouse tips and tricks](https://gardening.allwomenstalk.com/5-tips-on-having-a-greenhouse/)
 - [5 Vegetables to Grow ...](https://gardening.allwomenstalk.com/5-vegetables-to-grow/)
-- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
-- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [how to talk to squirrels](https://gardening.allwomenstalk.com/5-ways-to-attract-squirrels-to-the-garden/)
+- [coffee plant safe for cats](https://gardening.allwomenstalk.com/5-plants-safe-for-cats/)
+- [photos of zinnias](https://gardening.allwomenstalk.com/5-tips-on-growing-zinnias/)
 - [are amaryllis poisonous to cats](https://gardening.allwomenstalk.com/5-plants-poisonous-to-cats/)
+- [cactus facts](https://gardening.allwomenstalk.com/5-facts-on-taking-care-of-a-christmas-cactus/)
+- [going green gardening](https://gardening.allwomenstalk.com/going-green-in-your-garden/)
+- [10 Most Deadly Plants ...](https://gardening.allwomenstalk.com/10-most-deadly-plants/)
 - [5 Tips on Growing the Best Tomatoes ...](https://gardening.allwomenstalk.com/5-tips-on-growing-the-best-tomatoes/)
 - [5 Tips on Making a Vegetable Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-a-vegetable-garden/)
 
